@@ -1,12 +1,12 @@
-♡ This Github account is only used for Pony Town ♡
+♡ !! This Github account is only used for Pony Town !! ♡
 
--
+~
 
 ♡ Leon S. Kennedy's husband ♡
 
 ⤷ sharing / non-monogamous EXCEPT for Leon x Character ships. Other Leon Yumeshippers feel free to int!
 
--
+~
 
 ♡ Check out my epic Straw.page if you wana know some more stuff ♡ 
 
