@@ -1,12 +1,16 @@
+♡ This Github account is only used for Pony Town ♡
 
-![1266d7476eaaf8904358504a50ae141f](https://github.com/user-attachments/assets/cf457c48-159c-4adb-b739-2933977e73a6)
 
 ♡ Unlikely to approach you first, The Lion does not concern himself with getting over his fear of rejection ♡
 
+
 ♡ Leon S. Kennedy's husband ♡
+
 ⤷ sharing / non-monogamous EXCEPT for Leon x Character ships. Other Leon Yumeshippers feel free to int!
 
+
 ♡ Check out my epic Straw.page if you wana know some more stuff ♡ 
+
 ⤷ https://glorievo.straw.page
 
 <!--
