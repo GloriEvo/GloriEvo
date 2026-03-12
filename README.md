@@ -4,7 +4,7 @@
 
 ♡ Leon S. Kennedy's husband ♡
 
-⤷ sharing / non-monogamous EXCEPT for Leon x Character ships. Other Leon Yumeshippers feel free to int!
+⤷ sharing EXCEPT for Leon x Character ships. Other Leon Yumeshippers feel free to int!
 
 ~
 
