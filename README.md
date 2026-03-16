@@ -8,7 +8,7 @@
 
 ~
 
-♡ Check out my epic Straw.page if you wana know some more stuff ♡ 
+♡ Check out my epic (new! remade!) Straw.page if you wana know some more stuff ♡ 
 
 ⤷ https://gloriousleon.straw.page/
 
