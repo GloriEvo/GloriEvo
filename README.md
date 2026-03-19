@@ -4,11 +4,11 @@
 
 ♡ Leon S. Kennedy's husband ♡
 
-⤷ sharing EXCEPT for Leon x Character ships. Other Leon Yumeshippers feel free to int!
+⤷ Sharing with other Leon yumeshippers, not enthusiastic about Leon x [Character] ships but will still INT!
 
 ~
 
-♡ Check out my epic (new! remade!) Straw.page if you wana know some more stuff ♡ 
+♡ Check out my epic (new! WIP) Straw.page if you wana know some more stuff ♡ 
 
 ⤷ https://gloriousleon.straw.page/
 
