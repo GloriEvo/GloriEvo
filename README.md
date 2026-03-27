@@ -2,15 +2,15 @@
 
 ~
 
-♡ Leon S. Kennedy's husband ♡
+♡ Yumeshipper ♡
 
-⤷ Sharing with other Leon yumeshippers, not enthusiastic about Leon x [Character] ships but will still INT!
+⤷ Gathering yumes, testing waters and not taking it super seriously. I'm sharing and ENCOURAGE interacting if you have the same yume I do!
 
 ~
 
-♡ Check out my epic (new! WIP) Straw.page if you wana know some more stuff ♡ 
+♡ Remaking Straw.Page AGAIN, will link when it's available. ♡ 
 
-⤷ https://gloriousleon.straw.page/
+⤷ insert link here
 
 
 ![1266d7476eaaf8904358504a50ae141f](https://github.com/user-attachments/assets/b47a959c-cd71-4315-a58b-ab6936217e40)
