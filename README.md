@@ -4,7 +4,7 @@
 
 ♡ Yumeshipper ♡
 
-⤷ Gathering yumes, testing waters and not taking it super seriously. I'm sharing and ENCOURAGE interacting if you have the same yume I do!
+⤷ Gathering yumes, testing waters and not taking it super seriously. I'm sharing and ENCOURAGE interacting if you have the same yume(s) I do!
 
 ~
 
