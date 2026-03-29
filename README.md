@@ -10,7 +10,7 @@
 
 ♡ Remade Straw.Page AGAIN, still a WIP. ♡ 
 
-⤷ [insert link here](https://readme-wip.straw.page/)
+⤷ [READ ME](https://readme-wip.straw.page/)
 
 
 ![1266d7476eaaf8904358504a50ae141f](https://github.com/user-attachments/assets/b47a959c-cd71-4315-a58b-ab6936217e40)
