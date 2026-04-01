@@ -4,7 +4,7 @@
 
 ♡ Yumeshipper ♡
 
-⤷ I HEAVILYY Yumeship with Simon & Betty from AT/F&C - I am sharing and encourage interacting if you have the same yume(s) I do!!
+⤷ I HEAVILYY selfship with Simon & Betty from AT/F&C - I am sharing and encourage interacting if you have the same yume(s) I do!!
 
 ~
 
