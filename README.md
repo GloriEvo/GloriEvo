@@ -2,6 +2,10 @@
 
 ~
 
+♡ Semi-verbal, I usually have low energy and am even more quiet around people I don't know / am still getting to know.
+
+~
+
 ♡ Yumeshipper ♡
 
 ⤷ I HEAVILYY selfship with Simon & Betty from AT/F&C - I am sharing and encourage interacting if you have the same yume(s) I do!!
