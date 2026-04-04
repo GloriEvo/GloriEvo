@@ -17,7 +17,8 @@
 ⤷ [READ ME](https://readme-wip.straw.page/)
 
 
-![1266d7476eaaf8904358504a50ae141f](https://github.com/user-attachments/assets/b47a959c-cd71-4315-a58b-ab6936217e40)
+![b7cd2a36451901cee4df4e8cafddb38a](https://github.com/user-attachments/assets/6fc3f832-624a-4b8c-b4d6-8305ccec7a06)
+
 
 <!--
 **GloriEvo/GloriEvo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
