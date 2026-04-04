@@ -1,22 +1,22 @@
 ♡ !! This Github account is only used for Pony Town !! ♡
 
-~
+~☆
 
 ♡ Semi-verbal, I usually have low energy and am even more quiet around people I don't know / am still getting to know.
 
-~
+~☆
 
 ♡ Remade Straw.Page AGAIN, still a WIP. ♡ 
 
 ⤷ [READ ME](https://readme-wip.straw.page/)
 
-~
+~☆
 
 ♡ Yumeshipper ♡
 
 ⤷ I HEAVILYY selfship with Simon Petrikov & Betty Grof - I am sharing and encourage interacting if you have the same yume(s) I do!!
 
-~
+~☆
 
 ![betty](https://github.com/user-attachments/assets/1fd0a8da-5feb-4dd5-b445-1e1f54f917f5)
 
