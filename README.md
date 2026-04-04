@@ -6,15 +6,13 @@
 
 ~
 
-♡ Yumeshipper ♡
-
-⤷ I HEAVILYY selfship with Simon Petrikov & Betty Grof - I am sharing and encourage interacting if you have the same yume(s) I do!!
+♡ Remade Straw.Page AGAIN, still a WIP. ♡ 
+⤷ [READ ME](https://readme-wip.straw.page/)
 
 ~
 
-♡ Remade Straw.Page AGAIN, still a WIP. ♡ 
-
-⤷ [READ ME](https://readme-wip.straw.page/)
+♡ Yumeshipper ♡
+⤷ I HEAVILYY selfship with Simon Petrikov & Betty Grof - I am sharing and encourage interacting if you have the same yume(s) I do!!
 
 ~
 
