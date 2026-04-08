@@ -2,7 +2,9 @@
 
 ~☆
 
-♡ Semi-verbal, I usually have low energy and am even more quiet around people I don't know / am still getting to know.
+♡ Semi-verbal ♡
+
+⤷ Due to a mix of low energy and high anxiety I will be quiet around people I an unfamiliar with. If you talk to me enough, I'll come out of my shell eventually!
 
 ~☆
 
@@ -14,7 +16,7 @@
 
 ♡ Yumeshipper ♡
 
-⤷ I HEAVILYY selfship with Simon Petrikov & Betty Grof - I am sharing and encourage interacting if you have the same yume(s) I do!!
+⤷ I heavily selfship with Simon Petrikov & Betty Grof - I am sharing and encourage interacting if you have the same yume(s) I do!!
 
 ~☆
 
