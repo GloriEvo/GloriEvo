@@ -8,7 +8,7 @@
 
 ~☆
 
-♡ Remade Straw.Page AGAIN, still a WIP. ♡ 
+♡ Remade StrawPage AGAIN, still a WIP. ♡ 
 
 ⤷ [READ ME](https://readme-wip.straw.page/)
 
@@ -16,7 +16,7 @@
 
 ♡ Yumeshipper ♡
 
-⤷ Characters I selfship with are listed on my Straw.Page.
+⤷ Characters I selfship with are listed on my StrawPage.
 
 ~☆
 
