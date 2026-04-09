@@ -16,7 +16,7 @@
 
 ♡ Yumeshipper ♡
 
-⤷ I heavily selfship with Simon Petrikov & Betty Grof - I am sharing and encourage interacting if you have the same yume(s) I do!!
+⤷ Characters I selfship with are listed on my StrawPage
 
 ~☆
 
