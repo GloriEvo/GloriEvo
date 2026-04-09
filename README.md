@@ -16,7 +16,7 @@
 
 ♡ Yumeshipper ♡
 
-⤷ Characters I selfship with are listed on my StrawPage
+⤷ Characters I selfship with are listed on my Straw.Page.
 
 ~☆
 
