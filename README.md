@@ -18,7 +18,8 @@
 
 ~☆
 
-![09f0b8de25bf1f5485890b82a5e4cda8](https://github.com/user-attachments/assets/8e34a347-61dc-4194-b79a-06d95433eb13)
+![betty](https://github.com/user-attachments/assets/880c3f61-f3a7-47de-86b6-7aaf3f9d318a)
+
 
 
 
