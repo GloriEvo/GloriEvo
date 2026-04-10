@@ -1,26 +1,25 @@
-♡ !! This Github account is only used for Pony Town !! ♡
+..♡ !! This Github account is only used for Pony Town !! ♡..
 
 ~☆
 
-♡ Semi-verbal ♡
+..♡ BYI ♡..
 
-⤷ Due to a mix of low energy and high anxiety I will be quiet around people I an unfamiliar with. If you talk to me enough, I'll come out of my shell eventually!
+⤷ Semi-verbal: due to a mix of low energy and high anxiety I will be quiet around people I an unfamiliar with. 
+
+⤷ If I have started to warm up to you I will attempt to match your energy as long as my social battery is not dead.
+
+⤷ I do not like to RP so if you interact with me in character I will probably ignore you. 
 
 ~☆
 
-♡ Remade StrawPage AGAIN, still a WIP. ♡ 
+..♡ Read my Straw for more info! ♡..
 
 ⤷ [READ ME](https://readme-wip.straw.page/)
 
 ~☆
 
-♡ Yumeshipper ♡
+![4ac6ecc70ae30430336ce3624e00d476](https://github.com/user-attachments/assets/2e730ba6-db32-48f1-9fd4-686553aa4fec)
 
-⤷ Characters I selfship with are listed on my StrawPage.
-
-~☆
-
-![betty](https://github.com/user-attachments/assets/1fd0a8da-5feb-4dd5-b445-1e1f54f917f5)
 
 
 <!--
