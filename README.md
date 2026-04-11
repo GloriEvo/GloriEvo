@@ -14,7 +14,7 @@
 
 ..♡ Read my Straw for more info! ♡..
 
-⤷ I accidentally deleted the wrong strawpage I love everything!!!
+⤷ [READ ME](https://readme-wip.straw.page/) might look weird, kind of rushed because I accidentally deleted the first one!! yay!!
 
 ~☆
 
