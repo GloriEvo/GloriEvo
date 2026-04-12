@@ -14,7 +14,7 @@
 
 ..♡ Read my Straw for more info! ♡..
 
-⤷ [READ ME](https://readme-wip.straw.page/) might look weird, kind of rushed because I accidentally deleted the first one!! yay!!
+⤷ [READ ME](https://readme-wip.straw.page/) might look weird, kind of rushed (because I accidentally deleted the first one!! yay!!)
 
 ~☆
 
