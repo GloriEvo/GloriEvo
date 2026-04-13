@@ -6,7 +6,7 @@
 
 ⤷ Semi-verbal: due to a mix of low energy and high anxiety I am usually quiet around people I an unfamiliar with. 
 
-⤷ If I am comfortable enough I will attempt to match your energy.
+⤷ If I get comfortable enough I will attempt to match your energy.
 
 ⤷ I do not like to RP so if you interact with me in character I will probably ignore you. 
 
