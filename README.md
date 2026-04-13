@@ -4,9 +4,9 @@
 
 ..♡ BYI ♡..
 
-⤷ Semi-verbal: due to a mix of low energy and high anxiety I will be quiet around people I an unfamiliar with. 
+⤷ Semi-verbal: due to a mix of low energy and high anxiety I am usually quiet around people I an unfamiliar with. 
 
-⤷ If I have started to warm up to you I will attempt to match your energy as long as my social battery is not dead.
+⤷ If I am comfortable enough I will attempt to match your energy.
 
 ⤷ I do not like to RP so if you interact with me in character I will probably ignore you. 
 
