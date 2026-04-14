@@ -4,11 +4,11 @@
 
 ..♡ BYI ♡..
 
-⤷ Semi-verbal: due to a mix of low energy and high anxiety I am usually quiet around people I an unfamiliar with. 
+⤷ Michael Afton kinnie - doubles can int (encouraged kind of?) Michael selfshippers are also fine, just don't get weird.
 
-⤷ If I get comfortable enough I will attempt to match your energy.
+⤷ Semi-verbal: not very talkative if I don't know you, and even if I do, engagement in conversation is not guaranteed.
 
-⤷ I do not like to RP so if you interact with me in character I will probably ignore you. 
+⤷ I do not like to RP so if you interact with me in character I will probably ignore you.
 
 ~☆
 
