@@ -1,10 +1,10 @@
-..♡ !! This Github account is only used for Pony Town !! ♡..
+d..♡ !! This Github account is only used for Pony Town !! ♡..
 
 ~☆
 
 ..♡ BYI ♡..
 
-⤷ Michael Afton kinnie - doubles are free to int. Selfshippers are also fine, just don't be weird.
+⤷ Michael Afton kinnie - Doubles are free to int. Selfshippers are also fine, just don't be weird.
 
 ⤷ Semi-verbal: not very talkative if I don't know you, and even if I do, engagement in conversation is not guaranteed.
 
