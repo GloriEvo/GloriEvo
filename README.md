@@ -6,7 +6,7 @@ d..♡ !! This Github account is only used for Pony Town !! ♡..
 
 ⤷ Michael Afton kinnie - Doubles are free to int. Selfshippers are also fine, just don't be weird.
 
-⤷ Semi-verbal: engagement in conversation is not guardanteed and is very random for me.
+⤷ Semi-verbal: engagement in conversation is not guaranteed and is very random for me.
 
 ⤷ I do not like to RP so if you interact with me in character I will probably ignore you.
 
