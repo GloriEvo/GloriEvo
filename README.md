@@ -1,4 +1,4 @@
-d..♡ !! This Github account is only used for Pony Town !! ♡..
+..♡ !! This Github account is only used for Pony Town !! ♡..
 
 ~☆
 
