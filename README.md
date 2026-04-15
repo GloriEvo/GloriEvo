@@ -1,7 +1,3 @@
-..♡ !! This Github account is only used for Pony Town !! ♡..
-
-~☆
-
 ..♡ BYI ♡..
 
 ⤷ Michael Afton kinnie - Doubles are free to int. Selfshippers are also fine, just don't be weird.
