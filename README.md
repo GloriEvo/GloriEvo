@@ -17,11 +17,9 @@ read my straw pls ty
 
 ⤷ [READ ME](https://readme-wip.straw.page/) - still a WIP
 
-.
+☆~-
 
 <img width="736" height="696" alt="e81260f27d964afa86563e0d37898b88" src="https://github.com/user-attachments/assets/1be400bd-5d4f-4fed-bc21-b683b26d339a" />
-
-☆~-
 
 </div>
 
