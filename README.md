@@ -1,3 +1,4 @@
+<div align="center">
 need 2 remake GH but brain is too fuzzy
 
 ~☆
@@ -6,7 +7,7 @@ Read my straw
 
 ⤷ [READ ME](https://readme-wip.straw.page/) - still a WIP
 
-
+</div>
 
 
 
