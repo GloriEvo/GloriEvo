@@ -1,9 +1,23 @@
 <div align="center">
-need 2 remake GH but brain is too fuzzy
+☆~-
+  
+I am semi-verbal and won't always engage in conversation, sorry if this is boring.
 
-~☆
+..
 
-Read my straw
+4-ish months until I can live on the 18+ server, until then ONLY make suggestive jokes in party chat/whisper. It is extremely emberassing to be around people who do that in the public chat on the safe server(s).
+
+..
+
+Do not expect me to join your roleplay or respond in character automatically. You can still refer to me as the character I am cosplaying, just don't RP with me.
+
+..
+
+<img width="736" height="696" alt="e81260f27d964afa86563e0d37898b88" src="https://github.com/user-attachments/assets/1be400bd-5d4f-4fed-bc21-b683b26d339a" />
+
+
+
+read my straw pls ty
 
 ⤷ [READ ME](https://readme-wip.straw.page/) - still a WIP
 
