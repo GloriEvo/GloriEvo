@@ -1,5 +1,9 @@
 <div align="center">
 -~☆
+
+Michael Afton kinnie - I'm fine with doubles, if you're a Michael yumeshipper IWEC.
+
+.
   
 I am semi-verbal and won't always engage in conversation, sorry if this is boring.
 
