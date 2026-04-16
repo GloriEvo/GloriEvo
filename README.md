@@ -9,7 +9,7 @@ I am semi-verbal and won't always engage in conversation, sorry if this is borin
 
 .
 
-4-ish months until I can be on the 18+ server, until then ONLY make suggestive jokes in party chat/whisper. It is extremely emberassing to be around people who do that in the public chat on the safe server(s).
+4-ish months until I can be on the 18+ server, until then ONLY make suggestive jokes in party chat/whisper. It is extremely embarassing to be around people who do that in the public chat on the safe server(s).
 
 .
 
