@@ -1,20 +1,10 @@
-..♡ BYI ♡..
-
-⤷ Michael Afton kinnie - Doubles are free to int. Selfshippers are also fine, just don't be weird.
-
-⤷ Semi-verbal: engagement in conversation is not guaranteed and is very random for me.
-
-⤷ I do not like to RP so if you interact with me in character I will probably ignore you.
+need 2 remake GH but brain is too fuzzy
 
 ~☆
 
-..♡ Read my Straw for more info! ♡..
+Read my straw
 
 ⤷ [READ ME](https://readme-wip.straw.page/) - still a WIP
-
-~☆
-
-![betty](https://github.com/user-attachments/assets/880c3f61-f3a7-47de-86b6-7aaf3f9d318a)
 
 
 
