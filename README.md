@@ -2,17 +2,11 @@
 -~☆
   
 I am semi-verbal and won't always engage in conversation, sorry if this is boring.
-
 .
-
 4-ish months until I can be on the 18+ server, until then ONLY make suggestive jokes in party chat/whisper. It is extremely emberassing to be around people who do that in the public chat on the safe server(s).
-
 .
-
-Do not expect me to join your roleplay or respond in character automatically. You can still refer to me as the character I am cosplaying, just don't RP with me.
-
+Do not expect me to join your roleplay or respond in character automatically. You can still refer to me as the character I am cosplaying, but I will not RP.
 .
-
 read my straw pls ty
 
 ⤷ [READ ME](https://readme-wip.straw.page/) - still a WIP
