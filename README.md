@@ -1,7 +1,7 @@
 <div align="center">
 -~☆
 
-Michael Afton kinnie - I'm fine with doubles, if you're a Michael yumeshipper IWEC.
+I am probably on your DNI - I am proship, I'm tired of hiding and pretending to be anti. Read straw for info thankies.
 
 .
   
@@ -13,13 +13,9 @@ I am semi-verbal and won't always engage in conversation, sorry if this is borin
 
 .
 
-Do not expect me to join your roleplay or respond in character automatically. You can still refer to me as the character I am cosplaying, but I will not RP.
-
-.
-
 read my straw pls ty
 
-⤷ [READ ME](https://readme-wip.straw.page/) - still a WIP
+⤷ [READ ME](https://readme-proshipver.straw.page/) - still a WIP
 
 ☆~-
 
