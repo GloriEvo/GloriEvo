@@ -13,7 +13,7 @@ I am semi-verbal and won't always engage in conversation, sorry if this is borin
 
 .
 
-read my straw pls ty
+Strawpage below
 
 ⤷ [READ ME](https://readme-proshipver.straw.page/) - still a WIP
 
