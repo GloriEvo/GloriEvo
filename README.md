@@ -1,7 +1,7 @@
 <div align="center">
 -~☆
 
-I am probably on your DNI - I am proship, I'm tired of internalizing and pretending to be anti. Read straw for info thankies.
+I am probably on your DNI - I am profic, proship, and anti-harassment. I am also a darkshipper and comshipper, read straw for more info on that.
 
 .
   
