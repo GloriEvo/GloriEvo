@@ -5,7 +5,7 @@ Michael Afton fictkin
 
 .
 
-I am probably on your DNI - I am profic, proship, and anti-harassment. Read straw for more info.
+I am probably on your DNI - I am profic, proship, anti-harassment, and anti-censorship.
 
 .
   
@@ -19,7 +19,7 @@ I am semi-verbal and won't always engage in conversation, sorry if this is borin
 
 Strawpage below
 
-⤷ [READ ME](https://readme-proshipver.straw.page/) - still a WIP
+⤷ BEING REMADE!! Last one was garbage
 
 ☆~-
 
