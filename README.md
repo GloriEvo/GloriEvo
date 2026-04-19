@@ -5,7 +5,7 @@ Michael Afton fictkin
 
 .
 
-I am probably on your DNI - I am profic and proship. I enjoy darkships and comships.
+Proship - darkshipper & comshipper.
 
 .
   
@@ -13,7 +13,7 @@ I am semi-verbal and won't always engage in conversation, sorry if this is borin
 
 .
 
-Strawpage below
+Strawpage below, still a WIP.
 
 ⤷ [READ ME](https://readme-glorievo.straw.page/)
 
