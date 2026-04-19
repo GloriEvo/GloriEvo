@@ -5,7 +5,7 @@ Michael Afton fictkin
 
 .
 
-I am probably on your DNI - I am profic, proship, anti-harassment, and anti-censorship.
+I am probably on your DNI - I am profic and proship. I enjoy darkships and comships.
 
 .
   
