@@ -3,21 +3,21 @@
 
 Michael Afton fictkin
 
-
+.
 
 Proship - darkshipper & comshipper.
 
-⤷ Shipping is a massive comfort thing for me but I do exist outside of it, I promise.
+ Shipping is a massive comfort thing for me but I do exist outside of it, I promise.
 
-
+.
 
 Cuddling is always welcome and encouraged! 
 
-
+.
   
 I am semi-verbal and won't always engage in conversation, sorry if this is boring.
 
-
+.
 
 Strawpage below, still a WIP.
 
