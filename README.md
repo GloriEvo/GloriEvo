@@ -1,19 +1,20 @@
 <div align="center">
 -~☆
 
+.
+
 Michael Afton fictkin
 
-.
 
 Proship - darkshipper & comshipper.
 
- Shipping is a massive comfort thing for me but I do exist outside of it, I promise.
-
 .
+
+Usually offtab or AFK, whisper to int and I'll try to respond when I return!
+
 
 Cuddling is always welcome and encouraged! 
 
-.
   
 I am semi-verbal and won't always engage in conversation, sorry if this is boring.
 
@@ -22,6 +23,8 @@ I am semi-verbal and won't always engage in conversation, sorry if this is borin
 Strawpage below, still a WIP.
 
 ⤷ [READ ME](https://readme-glorievo.straw.page/)
+
+.
 
 ☆~-
 
