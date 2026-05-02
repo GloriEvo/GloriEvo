@@ -10,7 +10,7 @@ Profic & proship - Darkshipper.
 
 .
 
-Usually offtab or AFK, whisper to int and I'll try to respond when I return!
+Usually offtab or AFK, whisper to int and I'll try to respond when I return.
 
 
 Cuddling is always welcome and encouraged! 
