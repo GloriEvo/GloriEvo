@@ -6,7 +6,7 @@
 Michael Afton fictkin
 
 
-Proship - darkshipper & comshipper.
+Profic & proship - Darkshipper.
 
 .
 
