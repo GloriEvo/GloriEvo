@@ -1,34 +1,40 @@
 <div align="center">
--~☆
-
-.
-
-Michael Afton fictkin
 
 
-Profic & proship - Darkshipper.
+### ☆~- Hello Everypony -~☆
 
-.
+Michael Afton fictionkin
 
-Usually offtab or AFK, whisper to int and I'll try to respond when I return.
+17 years old - Sept 04, 2008
+
+He/They/It - In no particular order, I prefer all 3 equally.
+
+Profic & Proship - Darkshipper & Selfshipper - Your DNI goes both ways.
+
+##
+
+### ▼ Pony Town Info ▼
+
+I am semi-verbal and won't always fully engage in conversations, sorry if this is boring.
+
+Usually AFK, offtab, or napping on my desk. Whisper to int and I'll try to respond when I can!
+
+I don't usually have C+H in my pony names, but cuddling is always welcome and encouraged!
+
+Taking inspo from my ponies is always fine; fully copying my ponies is reserved for friends.
 
 
-Cuddling is always welcome and encouraged! 
+##
 
   
-I am semi-verbal and won't always engage in conversation, sorry if this is boring.
+Strawpage ➔ [READ ME](https://readme-glorievo.straw.page/) Eternally a WIP, read for extra info like fandoms I'm in!
 
-.
 
-Strawpage below, still a WIP.
 
-⤷ [READ ME](https://readme-glorievo.straw.page/)
 
-.
 
-☆~-
 
-<img width="736" height="696" alt="e81260f27d964afa86563e0d37898b88" src="https://github.com/user-attachments/assets/1be400bd-5d4f-4fed-bc21-b683b26d339a" />
+<img width="50%" height="50%" alt="e81260f27d964afa86563e0d37898b88" src="https://github.com/user-attachments/assets/1be400bd-5d4f-4fed-bc21-b683b26d339a" />
 
 </div>
 
