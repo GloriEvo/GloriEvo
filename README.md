@@ -19,7 +19,7 @@ I am semi-verbal and won't always fully engage in conversations, sorry if this i
 
 Usually AFK, offtab, or napping on my desk. Whisper to int and I'll try to respond when I can!
 
-I don't usually have C+H in my pony names, but cuddling is always welcome and encouraged!
+I don't put C+H in my pony names, but cuddling is always welcome and encouraged!
 
 Taking inspo from my ponies is always fine; fully copying my ponies is reserved for friends.
 
