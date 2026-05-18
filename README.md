@@ -17,7 +17,7 @@ Profic & Proship - Darkshipper & Selfshipper - Your DNI goes both ways.
 
 I am semi-verbal and won't always fully engage in conversations, sorry if this is boring.
 
-Usually AFK, offtab, or napping on my desk. Whisper to int and I'll try to respond when I can!
+Whisper to int 90% of the time, I'm usually off-tab or AFK.
 
 I don't put C+H in my pony names, but cuddling is always welcome and encouraged!
 
@@ -27,7 +27,7 @@ Taking inspo from my ponies is always fine; fully copying my ponies is reserved 
 ##
 
   
-Strawpage ➔ [READ ME](https://readme-glorievo.straw.page/) Eternally a WIP, read for extra info like fandoms I'm in!
+[STRAWPAGE](https://evo-readme.straw.page/)
 
 
 
