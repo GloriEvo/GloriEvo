@@ -15,13 +15,15 @@ Profic & Proship - Darkshipper & Selfshipper - Your DNI goes both ways.
 
 ### ▼ Pony Town Info ▼
 
-I am semi-verbal and won't always fully engage in conversations, sorry if this is boring.
-
 Whisper to int 90% of the time, I'm usually off-tab or AFK.
 
 I don't put C+H in my pony names, but cuddling is always welcome and encouraged!
 
 Taking inspo from my ponies is always fine; fully copying my ponies is reserved for friends.
+
+I might suddenly have dry responses due to energy drops and a lack of social skills, this is unintentional and sometimes I don't notice it. Sorry in advance!
+
+
 
 
 ##
