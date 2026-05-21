@@ -29,7 +29,7 @@ I might suddenly have dry responses due to energy drops and a lack of social ski
 ##
 
   
-gonna remake straw last one not good me thinks.
+[StrawPage](https://glorievo-readme.straw.page/)
 
 
 
