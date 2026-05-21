@@ -29,7 +29,7 @@ I might suddenly have dry responses due to energy drops and a lack of social ski
 ##
 
   
-[STRAWPAGE](https://evo-readme.straw.page/)
+gonna remake straw last one not good me thinks.
 
 
 
