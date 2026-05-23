@@ -9,7 +9,7 @@ Michael Afton fictionkin
 
 He/They/It - In no particular order, I prefer all 3 equally.
 
-Profic & Proship - Darkshipper & Selfshipper - Your DNI goes both ways.
+Profic & Proship - Darkshipper & Yumeshipper - Your DNI goes both ways.
 
 ##
 
@@ -29,7 +29,7 @@ I might suddenly have dry responses due to energy drops and a lack of social ski
 ##
 
   
-[StrawPage](https://glorievo-readme.straw.page/)
+[StrawPage](https://glorievo-readme.straw.page/) [Atabook](https://glorievo.atabook.org/)
 
 
 
