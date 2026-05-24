@@ -19,7 +19,7 @@ Profic & Proship - Darkshipper & Yumeshipper - Your DNI goes both ways.
 
 Whisper to int 90% of the time, I'm usually off-tab or AFK.
 
-I don't put C+H in my pony names, but cuddling is always welcome and encouraged!
+Cuddling is always welcome and encouraged, even if C+H isn't in my pony name!
 
 Taking inspo from my ponies is always fine; fully copying my ponies is reserved for friends.
 
