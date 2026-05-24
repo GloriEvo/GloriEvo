@@ -3,6 +3,8 @@
 
 ### ☆~- Hello Everypony -~☆
 
+You can call me Evo or Percy!
+
 Michael Afton fictionkin
 
 17 years old - Sept 04, 2008
