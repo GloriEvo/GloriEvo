@@ -31,7 +31,7 @@ I might suddenly have dry responses due to energy drops and a lack of social ski
 ##
 
   
-[StrawPage](https://glorievo-readme.straw.page/)  ✦  [Atabook](https://glorievo.atabook.org/)
+✦  [StrawPage](https://glorievo-readme.straw.page/)  ✦ 
 
 
 
