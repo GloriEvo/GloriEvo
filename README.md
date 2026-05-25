@@ -3,7 +3,7 @@
 
 ### ☆~- Hello Everypony -~☆
 
-You can call me Evo or Percy!
+You can call me Evo, Michael/Mike, or Percy!
 
 Michael Afton fictionkin
 
