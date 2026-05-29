@@ -2,16 +2,8 @@
 
 
 ### ☆~- Hello Everypony -~☆
-
-You can call me Evo, Michael/Mike, or Percy!
-
-Michael Afton fictionkin
-
-17 years old - Sept 04, 2008
-
-He/They/It - In no particular order, I prefer all 3 equally.
-
-Profic & Proship - Darkshipper & Yumeshipper - Your DNI goes both ways.
+ IMPORTANT:
+Profic & Proship - Darkshipper & Comshipper - Your DNI goes both ways.
 
 ##
 
@@ -30,8 +22,9 @@ I might suddenly have dry responses due to energy drops and a lack of social ski
 
 ##
 
+new & updated Strawpage, so cool!!!! pls read
   
-✦  [StrawPage](https://glorievo-readme.straw.page/)  ✦ 
+✦  [StrawPage](https://evo-aka-percy.straw.page/)  ✦ 
 
 
 
