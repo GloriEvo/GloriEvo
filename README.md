@@ -32,7 +32,9 @@ new & updated Strawpage, so cool!!!! pls read
 
 
 
-<img width="50%" height="50%" alt="e81260f27d964afa86563e0d37898b88" src="https://github.com/user-attachments/assets/1be400bd-5d4f-4fed-bc21-b683b26d339a" />
+<img width="50%" height="50%" alt="e682f3819f4fd840b6294fad19ead631" src="https://github.com/user-attachments/assets/08a8a5e7-a749-46d0-aa14-89c391411008" />
+
+im so weevil
 
 </div>
 
