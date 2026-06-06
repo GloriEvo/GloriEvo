@@ -20,7 +20,7 @@ Cuddling is always welcome and encouraged, even if C+H isn't in my pony name!
 
 Taking inspo from my ponies is always fine; fully copying my ponies is reserved for friends.
 
-People hide me and are hidden by me sometimes, so I might be sitting on someone I can't see. 
+People hide me and are hidden by me sometimes, so I might be sitting on someone I can't see. Just something that happens in an online space.
 
 I might suddenly have dry responses due to energy drops and a lack of social skills, this is unintentional and sometimes I don't notice it. Sorry in advance!
 
