@@ -2,9 +2,10 @@
 
 
 ### ☆~- Hello Everypony -~☆
- IMPORTANT:
 
-Profic & Proship - Darkshipper & Comshipper - Your DNI goes both ways.
+I'm very confused right now I have some opinions and ways of identifying that are changing patience is appreciated
+ 
+READ STRAW!!!!!!! Last update: June 05 2026 9:00pm
 
 ##
 
@@ -25,7 +26,7 @@ I might suddenly have dry responses due to energy drops and a lack of social ski
 
 new & updated Strawpage, so cool!!!! pls read
   
-✦  [StrawPage](https://evo-aka-percy.straw.page/)  ✦ 
+✦  [StrawPage](https://evo-readme.straw.page/)  ✦ 
 
 
 
