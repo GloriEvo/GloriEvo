@@ -3,7 +3,7 @@
 
 ### ☆~- Hello Everypony -~☆
 
-I'm very confused right now I have some opinions and ways of identifying that are changing patience is appreciated
+I'm very confused right now. I have some opinions and ways of identifying that are changing, patience is appreciated
  
 READ STRAW!!!!!!! Last update: June 05 2026 9:00pm
 
