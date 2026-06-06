@@ -9,6 +9,8 @@ I'm kind of confused right now. I have some opinions and ways of identifying tha
  
 READ STRAW!!!!!!! Last update: June 05 2026 9:00pm
 
+going to start hiding people who make "triple T" jokes it's starting to piss me off.
+
 ##
 
 ### ▼ Pony Town Info ▼
