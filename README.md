@@ -7,6 +7,8 @@ I'm kind of confused right now. I have some opinions and ways of identifying tha
 
 hi I need a cuddle buddy who can just sit and be semi-afk with me for like 3 hours and can tolerate me not wanting to talk ok applications open thank you
 
+I don't really like the infighting and debates happening I just want to interact with people who have the same labels I do I just want to have a sense of community ill probably ignore you if you bring any discourse up ok than k you
+
 ##
 
 ### ▼ Pony Town Info ▼
