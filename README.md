@@ -5,6 +5,8 @@
 
 I'm kind of confused right now. I have some opinions and ways of identifying that are changing, patience is really appreciated.
 
+hi I need a cuddle buddy who can just sit and be semi-afk with me for like 3 hours and can tolerate me not wanting to talk ok applications open thank you
+
 ##
 
 ### ▼ Pony Town Info ▼
