@@ -29,7 +29,7 @@ I might suddenly have dry or next to no responses due to energy drops and a lack
 
 hi read these for more info
   
-✦  [StrawPage](https://evo-readme.straw.page/)  [Pronouns.page](https://en.pronouns.page/@glori.evo) ✦ 
+✦  [StrawPage](https://evo-readme.straw.page/) ✦ [Pronouns.page](https://en.pronouns.page/@glori.evo) ✦ 
 
 
 
