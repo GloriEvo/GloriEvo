@@ -27,9 +27,9 @@ I might suddenly have dry or next to no responses due to energy drops and a lack
 
 ##
 
-new & updated Strawpage, so cool!!!! pls read
+hi read these for more info
   
-✦  [StrawPage](https://evo-readme.straw.page/)  ✦ 
+✦  [StrawPage](https://evo-readme.straw.page/)  [Pronouns.page](https://en.pronouns.page/@glori.evo) ✦ 
 
 
 
