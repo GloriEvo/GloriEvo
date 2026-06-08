@@ -7,13 +7,14 @@ I'm kind of confused right now. I have some opinions and ways of identifying tha
 
 hi I need a cuddle buddy who can just sit and be semi-afk with me for like 3 hours and can tolerate me not wanting to talk ok applications open thank you
 
-don't drag me into the infighting im so tired it's not what im sitting at the pride area for
-
 ##
 
 ### ▼ Pony Town Info ▼
 
-
+<details> 
+  <summary> click for a DNI not on my straw because I have only experienced it on here </summary>
+DNI if you tell people to kill themselves or say they should die / you wish they would die, I DO NOT CARE WHAT THE CONTEXT IS DNI.
+</details>
 <ins> Whisper to interact </ins> to make sure I see your message!
 
 Cuddling is always welcome and encouraged as long as I don't have DNI in my name.
