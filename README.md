@@ -22,7 +22,7 @@ Taking inspo from my ponies is always fine; fully copying my ponies is reserved 
 
 People hide me and are hidden by me, so I might be sitting on someone I can't see.
 
-I find it hard to focus in crowds of ponies moving and chatting and cannot hold more than 1 conversation, sorry if I don't catch your message!
+I find it hard to focus in crowds of ponies and cannot hold more than 1 conversation, sorry if I don't catch your message!
 
 I might suddenly have dry or next to no responses due to energy drops and a lack of social skills, this is unintentional and sometimes I don't notice it. Sorry in advance!
 
