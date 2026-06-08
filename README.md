@@ -4,28 +4,23 @@
 ### ☆~- Hello Everypony -~☆
 
 I'm kind of confused right now. I have some opinions and ways of identifying that are changing, patience is really appreciated.
- 
-READ STRAW!!!!!!! Last update: June 05 2026 9:00pm
-
-going to start hiding people who make "triple T" jokes I can't handle it any more.
 
 ##
 
 ### ▼ Pony Town Info ▼
 
 
+<ins> Whisper to interact </ins> to make sure I see your message!
 
-Whisper to int 90% of the time, I'm usually off-tab or AFK.
-
-Cuddling is always welcome and encouraged, even if C+H isn't in my pony name!
+Cuddling is always welcome and encouraged as long as I don't have DNI in my name.
 
 Taking inspo from my ponies is always fine; fully copying my ponies is reserved for friends.
 
-People hide me and are hidden by me sometimes, so I might be sitting on someone I can't see.
+People hide me and are hidden by me, so I might be sitting on someone I can't see.
 
-I get overstimulated in crowds of ponies moving and chatting, I find it difficult to focus on one person when so much is happening.
+I find it hard to focus in crowds of ponies moving and chatting and cannot hold more than 1 conversation, sorry if I don't catch your message!
 
-I might suddenly have dry responses due to energy drops and a lack of social skills, this is unintentional and sometimes I don't notice it. Sorry in advance!
+I might suddenly have dry or next to no responses due to energy drops and a lack of social skills, this is unintentional and sometimes I don't notice it. Sorry in advance!
 
 
 
