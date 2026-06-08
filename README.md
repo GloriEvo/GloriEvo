@@ -34,7 +34,7 @@ I might suddenly have dry or next to no responses due to energy drops and a lack
 
 ##
 
-hi read these for more info
+hi read these for more info - need to update straw a bit but I am very tired will do later
   
 ✦  [StrawPage](https://evo-readme.straw.page/) ✦ [Pronouns.page](https://en.pronouns.page/@glori.evo) ✦ 
 
