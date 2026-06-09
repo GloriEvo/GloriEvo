@@ -3,7 +3,7 @@
 
 ### ☆~- Hello Everypony -~☆
 
-<ins>Putting this at the top and being rude about it because I'm tired of it being ignored when I'm nice and subtle about it:</ins> If I say something like "I'm tired right now and I can't think of words" **I DO NOT WANT YOU TO KEEP TALKING AT ME.** When I get exhausted enough and people try talking to me I literally have to force myself to come up with a response and doing that genuinely makes me feel nausious at times. "Why are you on a social game if you won't talk to people? Just stop playing if you get tired." This is my comfort game and sometimes I just like to sit and watch other people talk. Sometimes I just want to be around other people and turn off my brain. I do also talk to people, I like socializing on the socializing game, I just shut down sometimes and need people to understand that.
+<ins>Putting this at the top and being rude about it because I'm tired of it being ignored when I'm nice and subtle about it:</ins> If I say something like "I'm tired right now and I can't think of words" **I DO NOT WANT YOU TO KEEP TALKING AT ME.** When I get exhausted enough and people try talking to me I literally have to force myself to come up with a response and doing that genuinely makes me feel nauseous at times. "Why are you on a social game if you won't talk to people? Just stop playing if you get tired." This is my comfort game and sometimes I just like to sit and watch other people talk. Sometimes I just want to be around other people and turn off my brain. I do also talk to people, I like socializing on the socializing game, I just shut down sometimes and need people to understand that.
 
 ##
 
