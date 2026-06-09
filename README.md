@@ -3,34 +3,23 @@
 
 ### ☆~- Hello Everypony -~☆
 
-I'm kind of confused right now. I have some opinions and ways of identifying that are changing, patience is really appreciated.
-
-hi I need a cuddle buddy who can just sit and be semi-afk with me for like 3 hours and can tolerate me not wanting to talk ok applications open thank you
-
-I don't really like the infighting and debates happening I just want to interact with people who have the same labels I do I just want to have a sense of community ill probably ignore you if you bring any discourse up ok than k you
+<ins>Putting this at the top and being rude about it because I'm tired of it being ignored when I'm nice and subtle about it:</ins> If I say something like "I'm tired right now and I can't think of words" **I DO NOT WANT YOU TO KEEP TALKING AT ME.** When I get exhausted enough and people try talking to me I literally have to force myself to come up with a response and doing that genuinely makes me feel nausious at times. "Why are you on a social game if you won't talk to people? Just stop playing if you get tired." This is my comfort game and sometimes I just like to sit and watch other people talk. Sometimes I just want to be around other people and turn off my brain. I do also talk to people, I like socializing on the socializing game, I just shut down sometimes and need people to understand that.
 
 ##
 
-### ▼ Pony Town Info ▼
+kind of related to the above I need a cuddle buddy who can just sit with me for like 3 hours and chill applications are open ok thank you
 
-<details> 
-  <summary> click for a DNI not on my straw because I have only experienced it on here </summary>
-DNI if you tell people to kill themselves or say they should die / you wish they would die, I DO NOT CARE WHAT THE CONTEXT IS DNI.
-</details>
-<ins> Whisper to interact </ins> to make sure I see your message!
+##
 
-Cuddling is always welcome and encouraged as long as I don't have DNI in my name.
+### ▼ BYI ▼
 
-Taking inspo from my ponies is always fine; fully copying my ponies is reserved for friends.
+Whisper to interact: there's a chance I won't see your message for many reasons, whispering makes sure I'll see what you said even if I'm gone or distracted!
 
-People hide me and are hidden by me, so I might be sitting on someone I can't see.
+Cuddling is always welcome and encouraged BIG TIME I love sitting with people. 
 
-I find it hard to focus in crowds of ponies and cannot hold more than 1 conversation, sorry if I don't catch your message!
+I find it difficult to focus in big crowds of ponies, sorry if I miss your message in a bit of the chaos!
 
-I might suddenly have dry or next to no responses due to energy drops and a lack of social skills, this is unintentional and sometimes I don't notice it. Sorry in advance!
-
-
-
+I have sudden energy drops and have little to no responses randomly / gradually. I know this can be a bit boring and/or jarring it's an issue I've had for as long as I can remember, sorry in advance.
 
 ##
 
