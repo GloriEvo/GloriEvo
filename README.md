@@ -5,13 +5,13 @@
 
 <ins>Putting this at the top and being rude about it because I'm tired of it being ignored when I'm nice and subtle about it *reworded slightly*:</ins> If I say something like "I'm tired right now and I can't think of words" **I DO NOT WANT YOU TO KEEP TALKING TO ME EXPECTING A RESPONSE**. When my energy gets low enough I literally have to force myself to come up with a response and it can make me nauseous if I do it for long enough. "Why don't you just get off the game when your energy gets low enough?" Because I don't just play Pony Town to talk to people. I like looking at my pony, I like looking at other people's ponies, I like watching other people talk, I like to turn my brain off while I feel like I'm around other people. !! I STILL LIKE TO TALK TO PEOPLE! Please don't let this (aggressive) boundary discourage you from interacting with me, I'm usually joyful and can actually be pretty energetic at times. This is also just for when I say I don't have energy to talk, and I will ALMOST ALWAYS make the bare minimum effort of telling you. I'm also going to make a habit of putting something in my pony name for when I'm too drained.
 
-ANOTHER WARNING: Stop whispering me or sending me gimmicks saying "hey this person is problematic and has a doc on them please hide them" because I probably already know about them, and if I don't and they're in my following or I'm talking to them, PLEASE PROVIDE A LINK FOR THE DOC ABOUT THEM. Don't just say the doc exists and then not provide it. Thank you.
-
 kind of related to the above I need a cuddle buddy who can just sit with me for like 3 hours and chill applications are open ok thank you
 
 ##
 
 ### ▼ BYI ▼
+
+!! If you're going to tell me about someone who has a doc on them, please provide the link for said doc up-front. !!
 
 Whisper to interact: there's a chance I won't see your message for many reasons, whispering makes sure I'll see what you said even if I'm gone or distracted!
 
