@@ -5,6 +5,7 @@
 
 <ins>Putting this at the top and being rude about it because I'm tired of it being ignored when I'm nice and subtle about it:</ins> If I say something like "I'm tired right now and I can't think of words" **I DO NOT WANT YOU TO KEEP TALKING AT ME.** When I get exhausted enough and people try talking to me I literally have to force myself to come up with a response and doing that genuinely makes me feel nauseous at times. "Why are you on a social game if you won't talk to people? Just stop playing if you get tired." This is my comfort game and sometimes I just like to sit and watch other people talk. Sometimes I just want to be around other people and turn off my brain. I do also talk to people, I like socializing on the socializing game, I just shut down sometimes and need people to understand that.
 
+ANOTHER WARNING: Stop whispering me or sending me gimmicks saying "hey this person is problematic and has a doc on them please hide them" because I probably already know about them, and if I don't and they're in my following or I'm talking to them, PLEASE PROVIDE A LINK FOR THE DOC ABOUT THEM. I don't want to have to hunt it down, if you don't have the link then don't tell me about them because I won't blindly believe what you say without proper evidence. 
 ##
 
 kind of related to the above I need a cuddle buddy who can just sit with me for like 3 hours and chill applications are open ok thank you
