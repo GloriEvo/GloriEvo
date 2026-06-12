@@ -88,6 +88,9 @@ hi read these for more info - need to update straw a bit sorry for any jank I'm 
 
 im so weevil
 
+
+to the kids in 9th grade who were making fun of my armpit hair and said "I bet stuff ferments under there" I hate you for it because being made fun of always really hurt but also that was funny as hell 😹 I almost giggled when it happened I needed to compose myself and remember what they were making fun of me for. Anyways hastag forever unshaved idc I still have hairy pits fuck you.
+
 </div>
 
 
