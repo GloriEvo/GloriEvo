@@ -3,7 +3,7 @@
 
 ### ☆~- Hello Everypony -~☆
 
-<ins> **This README is a BYI information page, please read before interacting!!** </ins>
+<ins> **This README is a BYI information page, please read this + my Pronoun.pages before interacting!!** </ins>
 
 ##
 
@@ -77,7 +77,7 @@ I find it difficult to focus in big crowds of ponies, sorry if I miss your messa
 
 hi read these for labels, terms, pronouns & more!
   
-✦ [Normal Pronouns.page](https://en.pronouns.page/@glori.evo) ✦ [Petregre Pronouns.page](https://en.pronouns.page/@goodest-boy) ✦
+✦ [Normal Pronouns.page](https://en.pronouns.page/@glori.evo) ✦ [Petre Pronouns.page](https://en.pronouns.page/@goodest-boy) ✦
 
 
 
