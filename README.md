@@ -75,9 +75,9 @@ I find it difficult to focus in big crowds of ponies, sorry if I miss your messa
 
 ✦ 
 
-hi read these for more info - need to update straw a bit sorry for any jank I'm garbage at graphic design (idk if you could tell from my git)
+hi read this for info on my labels and pronouns + honorifics thank you :3
   
-✦  [StrawPage](https://evo-readme.straw.page/) ✦ [Pronouns.page](https://en.pronouns.page/@glori.evo) ✦ 
+✦ [Pronouns.page](https://en.pronouns.page/@glori.evo) ✦ 
 
 
 
