@@ -75,9 +75,9 @@ I find it difficult to focus in big crowds of ponies, sorry if I miss your messa
 
 ✦ 
 
-hi read this for info on my labels and pronouns + honorifics thank you :3
+hi read these for labels, terms, pronouns & more!
   
-✦ [Pronouns.page](https://en.pronouns.page/@glori.evo) ✦ 
+✦ [Normal Pronouns.page](https://en.pronouns.page/@glori.evo) ✦ [Petregre Pronouns.page](https://en.pronouns.page/@goodest-boy) ✦
 
 
 
