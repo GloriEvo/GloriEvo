@@ -25,13 +25,6 @@ I do still enjoy talking to people, it just gets exhausting to do it for a long 
 
 If you get bored of me feel free to walk away and go find someone else to talk with (I mean this in a genuine /nm way sometimes people do just walk away). I enjoy just sitting with people I like and maybe saying a few little blips here and there, so I also do want you to stay even after my battery is drained :)
 
-<div align="right">
-
-✦ 
-
-I STILL LIKE TO TALK TO PEOPLE! Please don't let this discourage you from interacting with me, I'm usually joyful and can actually be pretty energetic at times. I will do the bare minimum of telling you when I am low on energy (99% of the time) I just need you to respect that.
-
-</div>
 
 ##
 
@@ -77,7 +70,7 @@ I find it difficult to focus in big crowds of ponies, sorry if I miss your messa
 
 hi read these for labels, terms, pronouns & more!
   
-✦ [Normal Pronouns.page](https://en.pronouns.page/@glori.evo) ✦ [Petre Pronouns.page](https://en.pronouns.page/@goodest-boy) ✦
+✦ [Normal Pronouns.page](https://en.pronouns.page/@glori.evo) ✦ [Agere/Petre Pronouns.page](https://en.pronouns.page/@goodest-boy) ✦
 
 
 
