@@ -21,9 +21,6 @@ I do still enjoy talking to people, it just gets exhausting to do it for a long 
 
 </div>
 
-✦ 
-
-If you get bored of me feel free to walk away and go find someone else to talk with (I mean this in a genuine /nm way sometimes people do just walk away). I enjoy just sitting with people I like and maybe saying a few little blips here and there, so I also do want you to stay even after my battery is drained :)
 
 
 ##
@@ -37,6 +34,7 @@ kind of related to the above I need a cuddle buddy who can just sit with me for 
 </div>
 
 ##
+
 
 ✦ 
 
