@@ -3,7 +3,7 @@
 
 ### ☆~- Hello Everypony -~☆
 
-<ins> **This README is a BYI information page, please read this + my Pronoun.pages before interacting!!** </ins>
+<ins> **Please read this README + both my Pronoun.pages before friending me thank you!!** </ins>
 
 ##
 
