@@ -11,15 +11,9 @@
 
 ✦ 
 
-<ins>Notice:</ins> Whenever I say something along the lines of "I don't have energy right now, I can't have proper responses." I NEED you to understand that what I mean is my brain is taking in information but doesn't know how to process it and come up with a proper written response to the information, aka your messages. 
+<ins>Notice:</ins> Whenever I say something along the lines of "I don't have energy right now, I can't have proper responses." I NEED you to understand that what I mean is my brain is taking in information but doesn't know how to process it and come up with a proper written response to the information, aka your messages. I do still enjoy talking to people, it just gets exhausting to do it for a long time or for multiple days in a row. I have *always* had this issue. 
 
-<div align="right">
 
-✦ 
-
-I do still enjoy talking to people, it just gets exhausting to do it for a long time or for multiple days in a row. I have *always* had this issue. 
-
-</div>
 
 
 
@@ -62,9 +56,25 @@ I find it difficult to focus in big crowds of ponies, sorry if I miss your messa
 
 ##
 
+✦
+
+William Afton [Fictionlink](https://alterhuman.miraheze.org/wiki/Fictionlink) / [Fictionheir](https://alterhuman.miraheze.org/wiki/Fictionheir) - other Williams can int just be respectful thanks!
+(Hi disclaimer I'm not a William sympathizer & do not defend the things his character has done *I feel like that might be obvious but I want to clarify just incase it's not*)
+
+<div align="right">
+
+✦ 
+
+I'm a yumeshipper: I have a lot of weird/uncommon f/os & am hypersharing (kind of a sad combo) any of my oc x canon ships also double as selfships. Ask if you're curious about my yumes!
+
+</div>
+
+##
+
 <div align="center">
 
 ✦ 
+
 
 hi read these for labels, terms, pronouns & more!
   
@@ -77,7 +87,7 @@ hi read these for labels, terms, pronouns & more!
 
 <img width="50%" height="50%" alt="e682f3819f4fd840b6294fad19ead631" src="https://github.com/user-attachments/assets/08a8a5e7-a749-46d0-aa14-89c391411008" />
 
-im so weevil
+
 
 
 </div>
