@@ -53,7 +53,7 @@ Cuddling is always welcome and encouraged BIG TIME I love sitting with people.
 
 ### Basic criteria
 
-● Transphobic, Racist, Abelist, Sexist, Homophobic. TRASH.
+◦ Transphobic, Racist, Abelist, Sexist, Homophobic. TRASH.
 
 I don't have the mental energy to constantly enforce a long DNI list, just be respectful.
 
@@ -68,11 +68,11 @@ I don't have the mental energy to constantly enforce a long DNI list, just be re
 
 ### I will not friend you if you're on this list
 
-● Under 14.
+◦ Under 14.
 
-● "Doubles DNI" in the context of fictionkins & adjecent, doesn't apply to non-sharing yumeshippers.
+◦ "Doubles DNI" in the context of fictionkins & adjecent, doesn't apply to non-sharing yumeshippers.
 
-● "DNI if you like / think you like [insert thing] more than me" I heavily dislike entitlement like this.
+◦ "DNI if you like / think you like [insert thing] more than me" I heavily dislike entitlement like this.
 
 </details>
 
