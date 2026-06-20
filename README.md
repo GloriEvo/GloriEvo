@@ -59,7 +59,9 @@ I find it difficult to focus in big crowds of ponies, sorry if I miss your messa
 ✦
 
 William Afton [Fictionlink](https://alterhuman.miraheze.org/wiki/Fictionlink) / [Fictionheir](https://alterhuman.miraheze.org/wiki/Fictionheir) - other Williams can int just be respectful thanks!
-(Hi disclaimer I'm not a William sympathizer & do not defend the things his character has done *I feel like that might be obvious but I want to clarify just incase it's not*)
+ 
+ 
+. Disclaimer I'm not a William sympathizer & do not support the things his character has done (*I feel like that might be obvious but I want to clarify just incase it's not*)
 
 <div align="right">
 
