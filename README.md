@@ -19,7 +19,7 @@
 
 ##
 
-<div align="center">
+<div align="right">
 
 ✦ 
 
@@ -38,19 +38,39 @@ kind of related to the above I need a cuddle buddy who can just sit with me for 
 
 ✦ 
 
-Whisper to interact: there's a chance I won't see your message for many reasons, whispering makes sure I'll see what you said!
+Cuddling is always welcome and encouraged BIG TIME I love sitting with people.
 
 </div>
 
-✦ 
+<div align="center">
 
-Cuddling is always welcome and encouraged BIG TIME I love sitting with people. (I need a cuddle buddy)
+##
 
-<div align="right">
+ ✦ 
 
-✦ 
+<details>
+ <summary> <ins> ✦ Do Not Interact ✦ </ins> </summary>
 
-I find it difficult to focus in big crowds of ponies, sorry if I miss your message in a bit of the chaos!
+Basic criteria / Transphobic, Racist, Abelist, Sexist, Homophobic. TRASH.
+
+I don't have the mental energy to constantly enforce a long DNI list, just be respectful.
+
+</details>
+
+
+
+<details> 
+ <summary> <ins> ✦ Interact With Caution ✦ </ins> </summary>
+
+**I will not friend you if you're on this list**
+
+Under 14.
+
+"Doubles DNI" in the context of fictionkins & adjecent.
+
+"DNI if you like / think you like [insert thing] more than me" I heavily dislike entitlement like this.
+
+</details>
 
 </div>
 
@@ -60,8 +80,6 @@ I find it difficult to focus in big crowds of ponies, sorry if I miss your messa
 
 William Afton [Fictionlink](https://alterhuman.miraheze.org/wiki/Fictionlink) / [Fictionheir](https://alterhuman.miraheze.org/wiki/Fictionheir) - other Williams can int just be respectful thanks!
  
- 
-. Disclaimer I'm not a William sympathizer & do not support the things his character has done (*I feel like that might be obvious but I want to clarify just incase it's not*)
 
 <div align="right">
 
