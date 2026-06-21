@@ -9,21 +9,12 @@
 
 </div>
 
-✦ 
-
-<ins>Notice:</ins> Whenever I say something along the lines of "I don't have energy right now, I can't have proper responses." I NEED you to understand that what I mean is my brain is taking in information but doesn't know how to process it and come up with a proper written response to the information, aka your messages. I do still enjoy talking to people, it just gets exhausting to do it for a long time or for multiple days in a row. I have *always* had this issue. 
-
-
-
-
-
-##
 
 <div align="right">
 
 ✦ 
 
-kind of related to the above I need a cuddle buddy who can just sit with me for like 3 hours and chill applications are open ok thank you
+I need a cuddle buddy who can just sit with me for like 3 hours and chill applications are open ok thank you
 
 </div>
 
@@ -34,6 +25,10 @@ kind of related to the above I need a cuddle buddy who can just sit with me for 
 
 !! If you're going to tell me about someone who has a doc on them, please provide the link for said doc up-front. !!
 
+
+✦ 
+
+I might suddenly go non/semi-verbal due to low energy, sorry!
 
 
 ✦ 
@@ -48,6 +43,8 @@ Cuddling is always welcome and encouraged BIG TIME I love sitting with people.
 
  ✦ 
 
+↓ Clickable! ↓
+
 <details>
  <summary> <ins> ✦ Do Not Interact ✦ </ins> </summary>
 
@@ -55,7 +52,7 @@ Cuddling is always welcome and encouraged BIG TIME I love sitting with people.
 
 ◦ Transphobic, Racist, Abelist, Sexist, Homophobic. TRASH.
 
-I don't have the mental energy to constantly enforce a long DNI list, just be respectful.
+*I don't have the mental energy to constantly enforce a long DNI list, just be respectful.*
 
 ##
 
@@ -101,10 +98,9 @@ I'm a yumeshipper: I have a lot of weird/uncommon f/os & am hypersharing (kind o
 
 ✦ 
 
+ ↓ Links for stuff here + pronouns.page ↓
 
-hi read these for labels, terms, pronouns & more!
-  
-✦ [Normal Pronouns.page](https://en.pronouns.page/@glori.evo) ✦ [Agere/Petre Pronouns.page](https://en.pronouns.page/@goodest-boy) ✦
+✦ [guns.lol](https://guns.lol/glorievo) ✦ [pronouns.page](https://en.pronouns.page/@glori.evo) ✦
 
 
 
