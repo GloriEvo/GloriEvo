@@ -26,9 +26,13 @@ I need a cuddle buddy who can just sit with me for like 3 hours and chill applic
 !! If you're going to tell me about someone who has a doc on them, please provide the link for said doc up-front. !!
 
 
+<div align="right">
+
 ✦ 
 
 I might suddenly go non/semi-verbal due to low energy, sorry!
+
+</div>
 
 
 ✦ 
@@ -85,12 +89,15 @@ Cuddling is always welcome and encouraged BIG TIME I love sitting with people.
 
 William Afton [Fictionlink](https://alterhuman.miraheze.org/wiki/Fictionlink) / [Fictionheir](https://alterhuman.miraheze.org/wiki/Fictionheir) - other Williams can int!
  
+</div>
+
+
 
 ✦ 
 
 I'm a yumeshipper: I have a lot of weird/uncommon f/os & am hypersharing (kind of a sad combo) any of my oc x canon ships also double as selfships. Ask if you're curious about my yumes!
 
-</div>
+
 
 ##
 
