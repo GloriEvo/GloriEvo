@@ -70,6 +70,8 @@ I don't have the mental energy to constantly enforce a long DNI list, just be re
 
 ◦ Under 14.
 
+◦ Fakeclaimers
+
 ◦ "Doubles DNI" in the context of fictionkins & adjecent, doesn't apply to non-sharing yumeshippers.
 
 ◦ "DNI if you like / think you like [insert thing] more than me" I heavily dislike entitlement like this.
