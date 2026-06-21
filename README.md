@@ -34,13 +34,13 @@ kind of related to the above I need a cuddle buddy who can just sit with me for 
 
 !! If you're going to tell me about someone who has a doc on them, please provide the link for said doc up-front. !!
 
-<div align="right">
+
 
 ✦ 
 
 Cuddling is always welcome and encouraged BIG TIME I love sitting with people.
 
-</div>
+
 
 <div align="center">
 
@@ -80,12 +80,12 @@ I don't have the mental energy to constantly enforce a long DNI list, just be re
 
 ##
 
+<div align="right">
+
 ✦
 
-William Afton [Fictionlink](https://alterhuman.miraheze.org/wiki/Fictionlink) / [Fictionheir](https://alterhuman.miraheze.org/wiki/Fictionheir) - other Williams can int just be respectful thanks!
+William Afton [Fictionlink](https://alterhuman.miraheze.org/wiki/Fictionlink) / [Fictionheir](https://alterhuman.miraheze.org/wiki/Fictionheir) - other Williams can int!
  
-
-<div align="right">
 
 ✦ 
 
