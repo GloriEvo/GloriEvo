@@ -109,7 +109,8 @@ hi read these for labels, terms, pronouns & more!
 
 
 
-<img width="50%" height="50%" alt="e682f3819f4fd840b6294fad19ead631" src="https://github.com/user-attachments/assets/08a8a5e7-a749-46d0-aa14-89c391411008" />
+<img width="40%" height="50%" alt="6f112392740345fe46d5f470cd551029" src="https://github.com/user-attachments/assets/8b6e1624-2787-46fe-9e03-1f0803ccb438" />
+
 
 
 
