@@ -71,9 +71,9 @@ Cuddling is always welcome and encouraged BIG TIME I love sitting with people.
 
 ◦ Under 14.
 
-◦ Fakeclaimers. You don't know what's going on in someone else's head.
+◦ Radqueers / in support or tolerant of Radqueers.
 
-◦ "Doubles DNI" in the context of fictionkins & adjecent, doesn't apply to non-sharing yumeshippers.
+◦ Fakeclaimers. You don't know what's going on in someone else's head.
 
 ◦ "DNI if you like / think you like [insert thing] more than me." I heavily dislike entitlement like this.
 
@@ -87,7 +87,7 @@ Cuddling is always welcome and encouraged BIG TIME I love sitting with people.
 
 ✦
 
-William Afton [Fictionlink](https://alterhuman.miraheze.org/wiki/Fictionlink) / [Fictionheir](https://alterhuman.miraheze.org/wiki/Fictionheir) - other Williams can int!
+Michael Afton [Fictionkin](https://otherkin.fandom.com/wiki/Fictionkin) & William Afton [Fictionlink](https://otherkin.wiki/wiki/Otherlink) - I'm ok with coexisting with other Michaels and Williams. Might be a little distant if you call other people doubles, though.
  
 </div>
 
