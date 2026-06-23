@@ -71,11 +71,11 @@ Cuddling is always welcome and encouraged BIG TIME I love sitting with people.
 
 ◦ Under 14.
 
-◦ Fakeclaimers
+◦ Fakeclaimers. You don't know what's going on in someone else's head.
 
 ◦ "Doubles DNI" in the context of fictionkins & adjecent, doesn't apply to non-sharing yumeshippers.
 
-◦ "DNI if you like / think you like [insert thing] more than me" I heavily dislike entitlement like this.
+◦ "DNI if you like / think you like [insert thing] more than me." I heavily dislike entitlement like this.
 
 </details>
 
