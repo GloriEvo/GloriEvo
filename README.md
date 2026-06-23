@@ -54,9 +54,11 @@ Cuddling is always welcome and encouraged BIG TIME I love sitting with people.
 
 ### Basic criteria
 
-◦ Transphobic, Racist, Abelist, Sexist, Homophobic. TRASH.
+◦ Transphobic, Racist, Abelist, Sexist and/or Homophobic, aka TRASH.
 
-*I don't have the mental energy to constantly enforce a long DNI list, just be respectful.*
+◦ Radqueers.
+
+*I don't have the mental energy to constantly enforce a long DNI list, but I still hide & block freely and frequently.*
 
 ##
 
@@ -71,7 +73,7 @@ Cuddling is always welcome and encouraged BIG TIME I love sitting with people.
 
 ◦ Under 14.
 
-◦ Radqueers / in support or tolerant of Radqueers.
+◦ GenAI users or defenders of GenAI users. (*does not apply to people recovering from AI addictions*)
 
 ◦ Fakeclaimers. You don't know what's going on in someone else's head.
 
@@ -87,7 +89,9 @@ Cuddling is always welcome and encouraged BIG TIME I love sitting with people.
 
 ✦
 
-Michael Afton [Fictionkin](https://otherkin.fandom.com/wiki/Fictionkin) & William Afton [Fictionlink](https://otherkin.wiki/wiki/Otherlink) - I'm ok with coexisting with other Michaels and Williams. Might be a little distant if you call other people doubles, though.
+Michael Afton [Fictionkin](https://otherkin.fandom.com/wiki/Fictionkin) & William Afton [Fictionlink](https://otherkin.wiki/wiki/Otherlink)
+
+I'm ok with coexisting with other Michaels and Williams. *I might be a little distant if you call other people doubles, though.*
  
 </div>
 
@@ -95,7 +99,9 @@ Michael Afton [Fictionkin](https://otherkin.fandom.com/wiki/Fictionkin) & Willia
 
 ✦ 
 
-I'm a yumeshipper: I have a lot of weird/uncommon f/os & am hypersharing (kind of a sad combo) any of my oc x canon ships also double as selfships. Ask if you're curious about my yumes!
+I'm a yumeshipper: I have a lot of weird/uncommon f/os & am hypersharing. (kind of a sad combo) 
+
+Any of my oc x canon ships also double as selfships.
 
 
 
