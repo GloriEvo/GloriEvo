@@ -73,11 +73,9 @@ Cuddling is always welcome and encouraged BIG TIME I love sitting with people.
 
 ◦ Under 14.
 
-◦ GenAI users or defenders of GenAI users. 
-
-(*does not apply to people making an attempt to stop their use of GenAI.*)
-
 ◦ Fakeclaimers. You don't know what's going on in someone else's head.
+
+◦ GenAI users or defenders of GenAI users. (*does not apply to people making an attempt to stop their use of GenAI.*)
 
 ◦ "DNI if you like / think you like [insert thing] more than me." I heavily dislike entitlement like this.
 
