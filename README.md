@@ -3,7 +3,7 @@
 
 ### ☆~- Hello Everypony -~☆
 
-<ins> **Please read this README + both my Pronoun.pages before friending me thank you!!** </ins>
+<ins> **Please read this README + my Pronouns.page before friending me thank you!!** </ins>
 
 ##
 
