@@ -69,11 +69,11 @@ Cuddling is always welcome and encouraged BIG TIME I love sitting with people.
 <details> 
  <summary> <ins> ✦ Interact With Caution ✦ </ins> </summary>
 
-### I will not friend you if you're on this list
+### I will not friend you if you're on this list.
 
 ◦ Under 14.
 
-◦ GenAI users or defenders of GenAI users. (*does not apply to people recovering from AI addictions*)
+◦ GenAI users or defenders of GenAI users. (*does not apply to people making an attempt to stop their use of GenAI, I understand that it takes time and energy.*)
 
 ◦ Fakeclaimers. You don't know what's going on in someone else's head.
 
