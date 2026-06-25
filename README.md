@@ -77,7 +77,7 @@ Cuddling is always welcome and encouraged BIG TIME I love sitting with people.
 
 ◦ GenAI users or defenders of GenAI users. (*does not apply to people making an attempt to stop their use of GenAI.*)
 
-◦ "DNI if you like / think you like [insert thing] more than me." I heavily dislike entitlement like this.
+◦ "DNI if you like / think you like [insert thing] more than me."
 
 </details>
 
