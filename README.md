@@ -77,7 +77,7 @@ Cuddling is always welcome and encouraged BIG TIME I love sitting with people.
 
 ◦ GenAI users or defenders of GenAI users. (*does not apply to people making an attempt to stop their use of GenAI.*)
 
-◦ "DNI if you like / think you like [insert thing] more than me."
+◦ "DNI if you like / think you like [insert thing] more than me." pmo
 
 </details>
 
@@ -85,7 +85,7 @@ Cuddling is always welcome and encouraged BIG TIME I love sitting with people.
 
 ##
 
-<div align="right">
+
 
 ✦
 
@@ -93,9 +93,9 @@ Michael Afton [Fictionkin](https://otherkin.fandom.com/wiki/Fictionkin) & Willia
 
 I'm ok with coexisting with other Michaels and Williams. *I might be a little distant if you call other people doubles, though.*
  
-</div>
 
 
+<div align="right">
 
 ✦ 
 
@@ -103,7 +103,7 @@ I'm a yumeshipper: I have a lot of weird/uncommon f/os & am hypersharing. (kind 
 
 Any of my oc x canon ships also double as selfships.
 
-
+</div>
 
 ##
 
