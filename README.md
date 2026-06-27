@@ -97,7 +97,7 @@ Cuddling is always welcome and encouraged BIG TIME I love sitting with people.
 
 ✦
 
-Michael Afton [Fictionkin](https://otherkin.fandom.com/wiki/Fictionkin) & William Afton [Fictionlink](https://otherkin.wiki/wiki/Otherlink)
+Michael Afton [Fictionkin](https://otherkin.fandom.com/wiki/Fictionkin) & William Afton [Fictionlink](https://otherkin.wiki/wiki/Otherlink) - I'm also a Floatzel IRL.
 
 I'm ok with coexisting with other Michaels and Williams. *I might be a little distant if you call other people doubles, though.*
  
