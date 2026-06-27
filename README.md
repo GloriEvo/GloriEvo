@@ -21,6 +21,7 @@ I need a cuddle buddy who can just sit with me for like 3 hours and chill applic
 ##
 
 
+
 ✦ 
 
 !! If you're going to tell me about someone who has a doc on them, please provide the link for said doc up-front. !!
@@ -35,11 +36,18 @@ I might suddenly go non/semi-verbal due to low energy, sorry!
 </div>
 
 
+
+✦
+
+I hate smalltalk and am horrible at it, if you try to start a conversation with "how are you" I will be (unintentionally) dry asf.
+
+<div align="right">
+
 ✦ 
 
 Cuddling is always welcome and encouraged BIG TIME I love sitting with people.
 
-
+</div>
 
 <div align="center">
 
