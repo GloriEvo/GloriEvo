@@ -81,7 +81,7 @@ Cuddling is always welcome and encouraged BIG TIME I love sitting with people.
 
 ◦ Under 14.
 
-◦ Fakeclaimers. You don't know what's going on in someone else's head.
+◦ Fakeclaimers.
 
 ◦ GenAI users or defenders of GenAI users. (*does not apply to people making an attempt to stop their use of GenAI.*)
 
@@ -97,10 +97,26 @@ Cuddling is always welcome and encouraged BIG TIME I love sitting with people.
 
 ✦
 
-Michael Afton [Fictionkin](https://otherkin.fandom.com/wiki/Fictionkin) & William Afton [Fictionlink](https://otherkin.wiki/wiki/Otherlink) - I'm also a Floatzel IRL.
+Michael Afton [Fictionkin](https://otherkin.fandom.com/wiki/Fictionkin) & William Afton [Fictionlink](https://otherkin.wiki/wiki/Otherlink)
 
 I'm ok with coexisting with other Michaels and Williams. *I might be a little distant if you call other people doubles, though.*
+
  
+<details>
+ <summary> <ins> ✦ Other kins! ✦ </ins> </summary>
+
+◦ **Bluey**
+
+◦ **Waterbear / Tardigrade**
+
+◦ Floatzel / Buizel (Pokemon)
+
+◦ Fungi (don't know which specific species yet)
+
+◦ Saturn (planet)
+
+</details>
+
 
 
 <div align="right">
