@@ -5,6 +5,10 @@
 
 <ins> **Please read this README + my Pronouns.page before friending me thank you!!** </ins>
 
+
+
+
+
 ##
 
 </div>
@@ -115,9 +119,11 @@ I'm ok with coexisting with other Michaels and Williams. *I might be a little di
 
 ◦ Saturn (planet)
 
+
 </details>
 
 
+<img width="35%" height="355" alt="OIP-821432604" src="https://github.com/user-attachments/assets/0a64bed7-dba8-47f2-b3ce-2bdd213e37b1" />
 
 <div align="right">
 
@@ -138,7 +144,6 @@ Any of my oc x canon ships also double as selfships.
  ↓ Links for stuff here + pronouns.page ↓
 
 ✦ [guns.lol](https://guns.lol/glorievo) ✦ [pronouns.page](https://en.pronouns.page/@glori.evo) ✦
-
 
 
 
