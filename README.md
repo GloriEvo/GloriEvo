@@ -113,11 +113,11 @@ I'm ok with coexisting with other Michaels and Williams. *I might be a little di
 
 ◦ **Waterbear / Tardigrade**
 
+◦ Hermitcrab
+
 ◦ Floatzel / Buizel (Pokemon)
 
 ◦ Fungi (don't know which specific species yet)
-
-◦ Saturn (planet)
 
 
 </details>
