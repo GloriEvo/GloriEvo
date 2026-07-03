@@ -43,7 +43,7 @@ If you couldn't already tell, we refer to ourself using plural pronouns like 'we
 
 ✦ 
 
-We might suddenly go non/semi-verbal due to low energy, sorry!
+We might suddenly go non/semi-verbal due to low energy, anxiety and various other reasons. Sorry in advance!
 
 
 
