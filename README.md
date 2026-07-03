@@ -3,7 +3,7 @@
 
 ### ☆~- Hello Everypony -~☆
 
-<ins> **Please read this README + my Pronouns.page before friending me thank you!!** </ins>
+<ins> **Please read this README + our Pronouns.cc before friending us thank you!!** </ins>
 
 
 
@@ -18,7 +18,7 @@
 
 ✦ 
 
-I need a cuddle buddy who can just sit with me for like 3 hours and chill applications are open ok thank you
+We need a cuddle buddy who can just sit with us for like 3 hours and chill applications are open ok thank you
 
 </div>
 
@@ -28,28 +28,34 @@ I need a cuddle buddy who can just sit with me for like 3 hours and chill applic
 
 ✦ 
 
-!! If you're going to tell me about someone who has a doc on them, please provide the link for said doc up-front. !!
+!! If you're going to tell us about someone who has a doc on them, please provide the link for said doc up-front. !!
 
 
 <div align="right">
 
-✦ 
+✦
 
-I might suddenly go non/semi-verbal due to low energy, sorry!
+If you couldn't already tell, we refer to ourself using plural pronouns like 'we' and 'our'. **WE ARE NOT A SYSTEM!** We are one singular individual up in this noggin, we just find referring to ourself in this way to be comforting! *this is a recent discovery and we are still building a habit of using pronouns like 'we' instead of 'I', our muscle memory may take over.
 
 </div>
+
+✦ 
+
+We might suddenly go non/semi-verbal due to low energy, sorry!
+
+
 
 
 
 ✦
 
-I hate smalltalk and am horrible at it, if you try to start a conversation with "how are you" I will be (unintentionally) dry asf.
+We hate smalltalk and are horrible at it, if you try to start a conversation with "how are you" we will be (unintentionally) dry asf.
 
 <div align="right">
 
 ✦ 
 
-Cuddling is always welcome and encouraged BIG TIME I love sitting with people.
+Cuddling is always welcome and encouraged BIG TIME we love sitting with people!!
 
 </div>
 
@@ -70,7 +76,7 @@ Cuddling is always welcome and encouraged BIG TIME I love sitting with people.
 
 ◦ Radqueers.
 
-*I don't have the mental energy to constantly enforce a long DNI list, but I still hide & block freely and frequently.*
+*We don't have the mental energy to constantly enforce a long DNI list, but we still hide & block freely and frequently.*
 
 ##
 
@@ -81,7 +87,7 @@ Cuddling is always welcome and encouraged BIG TIME I love sitting with people.
 <details> 
  <summary> <ins> ✦ Interact With Caution ✦ </ins> </summary>
 
-### I will not friend you if you're on this list.
+### We will not friend you if you're on this list.
 
 ◦ Under 14.
 
@@ -89,7 +95,7 @@ Cuddling is always welcome and encouraged BIG TIME I love sitting with people.
 
 ◦ GenAI users or defenders of GenAI users. (*does not apply to people making an attempt to stop their use of GenAI.*)
 
-◦ "DNI if you like / think you like [insert thing] more than me." pmo
+◦ "DNI if you like / think you like [insert thing] more than me."
 
 </details>
 
@@ -103,7 +109,7 @@ Cuddling is always welcome and encouraged BIG TIME I love sitting with people.
 
 Michael Afton [Fictionkin](https://otherkin.fandom.com/wiki/Fictionkin) & William Afton [Fictionlink](https://otherkin.wiki/wiki/Otherlink)
 
-I'm ok with coexisting with other Michaels and Williams. *I might be a little distant if you call other people doubles, though.*
+If you share any of our kins/links we ENCOURAGE you to interact! *If you call other people doubles we may be hesitant to interact or friend you, though.*
 
  
 <details>
@@ -117,7 +123,7 @@ I'm ok with coexisting with other Michaels and Williams. *I might be a little di
 
 ◦ Floatzel / Buizel (Pokemon)
 
-◦ Fungi (don't know which specific species yet)
+◦ Fungi (we're not sure which specific species yet)
 
 
 </details>
@@ -129,9 +135,9 @@ I'm ok with coexisting with other Michaels and Williams. *I might be a little di
 
 ✦ 
 
-I'm a yumeshipper: I have a lot of weird/uncommon f/os & am hypersharing. (kind of a sad combo) 
+We're a yumeshipper: we have a lot of weird/uncommon f/os & are hypersharing. (kind of a sad combo) 
 
-Any of my oc x canon ships also double as selfships.
+Any of our oc x canon ships also double as selfships!
 
 </div>
 
@@ -141,9 +147,9 @@ Any of my oc x canon ships also double as selfships.
 
 ✦ 
 
- ↓ Links for stuff here + pronouns.page ↓
+ ↓ Links for stuff here + pronouns.cc ↓
 
-✦ [guns.lol](https://guns.lol/glorievo) ✦ [pronouns.page](https://en.pronouns.page/@glori.evo) ✦
+✦ [guns.lol](https://guns.lol/glorievo) ✦ [pronouns.cc](https://pronouns.cc/@glorievo) ✦
 
 
 
