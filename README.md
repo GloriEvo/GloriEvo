@@ -35,7 +35,7 @@ We need a cuddle buddy who can just sit with us for like 3 hours and chill appli
 
 ✦
 
-If you couldn't already tell, we refer to ourself using plural pronouns like 'we' and 'our'. **WE ARE NOT A SYSTEM!** We are one singular individual up in this noggin, we just find referring to ourself in this way to be comforting! *this is a recent discovery and we are still building a habit of using pronouns like 'we' instead of 'I', our muscle memory may take over.
+If you couldn't already tell, we refer to ourself using plural pronouns like 'we' and 'our'. **WE ARE NOT A SYSTEM!** We are one singular individual up in this noggin, we just find referring to ourself in this way to be comforting! *this is a recent discovery and we are still building a habit of using pronouns like 'we' instead of 'I', our muscle memory may take over.*
 
 </div>
 
@@ -45,19 +45,19 @@ We might suddenly go non/semi-verbal due to low energy, sorry!
 
 
 
-
+<div align="right">
 
 ✦
 
 We hate smalltalk and are horrible at it, if you try to start a conversation with "how are you" we will be (unintentionally) dry asf.
 
-<div align="right">
+</div>
 
 ✦ 
 
 Cuddling is always welcome and encouraged BIG TIME we love sitting with people!!
 
-</div>
+
 
 <div align="center">
 
