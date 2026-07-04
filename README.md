@@ -97,6 +97,8 @@ Cuddling is always welcome and encouraged BIG TIME we love sitting with people!!
 
 ◦ GenAI users or defenders of GenAI users. (*does not apply to people making an attempt to stop their use of GenAI.*)
 
+◦ If you make "Triple T" jokes
+
 ◦ "DNI if you like / think you like [insert thing] more than me."
 
 </details>
@@ -137,9 +139,11 @@ If you share any of our kins/links we ENCOURAGE you to interact! *If you call ot
 
 ✦ 
 
-We're a yumeshipper: we have a lot of weird/uncommon f/os & are hypersharing. (kind of a sad combo) 
+We're a yumeshipper: we have a lot of weird/uncommon/embarrassing f/os & are hypersharing. (kind of a sad combo) 
 
 Any of our oc x canon ships also double as selfships!
+
+Our main yume is Shrek he's our wife & we ship our OC Perceval aka Percy with him!
 
 </div>
 
