@@ -35,9 +35,9 @@ We need a cuddle buddy who can just sit with us for like 3 hours and chill appli
 
 ✦
 
-If you couldn't already tell, we refer to ourself using plural pronouns like 'we' and 'our'. **WE ARE NOT A SYSTEM!** We are one singular individual up in this noggin, we just find referring to ourself in this way to be comforting! 
+If you couldn't already tell, we usually refer to ourself using plural pronouns like 'we' and 'our'. **WE ARE NOT A SYSTEM!** We are one singular individual up in this noggin, we just find referring to ourself in this way to be comforting! We occasionally still use singular pronouns.
 
-*this is a recent discovery and we are still building a habit of using pronouns like 'we' instead of 'I', our muscle memory may take over and end up with us using singular pronouns occasionally.*
+*this is a recent discovery and might be even more confusing if you knew us before this change.*
 
 </div>
 
