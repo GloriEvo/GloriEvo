@@ -57,7 +57,7 @@ We hate smalltalk and are horrible at it, if you try to start a conversation wit
 
 ✦ 
 
-HUGE cuddle & touch comfort. Cuddles are always welcome and encouraged!! Don't worry too much about covering us while cuddling, as long as a few of our pixles are still visible we're fine with being covered!
+HUGE cuddle & touch comfort. Cuddles are always welcome and encouraged!! Don't worry too much about covering us while cuddling, as long as a few of our pixels are still visible we're fine with being covered!
 
 
 
