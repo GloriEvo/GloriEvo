@@ -121,19 +121,20 @@ If you share any of our kins/links we ENCOURAGE you to interact! *If you call ot
 
 ◦ **Bluey**
 
-◦ **Waterbear / Tardigrade**
+◦ **Tardigrade**
 
 ◦ Hermitcrab
 
 ◦ Floatzel / Buizel (Pokemon)
 
-◦ Fungi (we're not sure which specific species yet)
+◦ Fungus (we're not sure which specific species yet)
 
+◦ Zombie
+
+◦ Skeleton
 
 </details>
 
-
-<img width="35%" height="355" alt="OIP-821432604" src="https://github.com/user-attachments/assets/0a64bed7-dba8-47f2-b3ce-2bdd213e37b1" />
 
 <div align="right">
 
@@ -153,9 +154,9 @@ Our main yume is Shrek he's our wife & we ship our OC Perceval aka Percy with hi
 
 ✦ 
 
- ↓ Links for stuff here + pronouns.cc ↓
+ ↓ Links for stuff here ↓
 
-✦ [guns.lol](https://guns.lol/glorievo) ✦ [pronouns.cc](https://pronouns.cc/@glorievo) ✦
+✦ [guns.lol](https://guns.lol/glorievo) ✦ [pronouns.cc](https://pronouns.cc/@glorievo) ✦ [straw.page](https://evo-glori.straw.page) ✦
 
 
 
