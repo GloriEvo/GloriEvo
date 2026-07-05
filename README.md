@@ -111,7 +111,7 @@ HUGE cuddle & touch comfort. Cuddles are always welcome and encouraged!! Don't w
 
 ✦
 
-Michael Afton [Fictionkin](https://otherkin.fandom.com/wiki/Fictionkin) & William Afton [Fictionlink](https://otherkin.wiki/wiki/Otherlink)
+Michael Afton & Ennard [Fictionkin](https://otherkin.fandom.com/wiki/Fictionkin) & William Afton [Fictionlink](https://otherkin.wiki/wiki/Otherlink)
 
 If you share any of our kins/links we ENCOURAGE you to interact! *If you call other people doubles we may be hesitant to interact or friend you, though.*
 
