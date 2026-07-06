@@ -14,11 +14,24 @@
 </div>
 
 
-<div align="right">
-
 ✦ 
 
-We need a cuddle buddy who can just sit with us for like 3 hours and chill applications are open ok thank you
+!! If you're going to tell us about someone who has a doc on them, please provide the link for said doc up-front. !!
+
+
+##
+
+
+
+
+
+<div align="right">
+
+✦
+
+If you couldn't already tell, we usually refer to ourself using plural pronouns like 'we' and 'our'. **WE ARE NOT A SYSTEM!** We are one singular individual up in this noggin, we just enjoy referring to ourself in this way! We do occasionally still use singular pronouns, depending on the context / our mood.
+
+*this is a recent discovery, apologies if you knew us before we figured this out and are confused by it.*
 
 </div>
 
@@ -26,20 +39,6 @@ We need a cuddle buddy who can just sit with us for like 3 hours and chill appli
 
 
 
-✦ 
-
-!! If you're going to tell us about someone who has a doc on them, please provide the link for said doc up-front. !!
-
-
-<div align="right">
-
-✦
-
-If you couldn't already tell, we usually refer to ourself using plural pronouns like 'we' and 'our'. **WE ARE NOT A SYSTEM!** We are one singular individual up in this noggin, we just find referring to ourself in this way to be comforting! We occasionally still use singular pronouns.
-
-*this is a recent discovery and might be even more confusing if you knew us before this change.*
-
-</div>
 
 ✦ 
 
@@ -95,9 +94,9 @@ HUGE cuddle & touch comfort. Cuddles are always welcome and encouraged!! Don't w
 
 ◦ Fakeclaimers.
 
-◦ GenAI users or defenders of GenAI users. (*does not apply to people making an attempt to stop their use of GenAI.*)
-
 ◦ If you make "Triple T" jokes
+
+◦GenAI users or defenders of GenAI users. (*does not apply to people making an attempt to stop their use of GenAI.*)
 
 ◦ "DNI if you like / think you like [insert thing] more than me."
 
@@ -113,7 +112,7 @@ HUGE cuddle & touch comfort. Cuddles are always welcome and encouraged!! Don't w
 
 Michael Afton & Ennard [Fictionkin](https://otherkin.fandom.com/wiki/Fictionkin) & William Afton [Fictionlink](https://otherkin.wiki/wiki/Otherlink)
 
-If you share any of our kins/links we ENCOURAGE you to interact! *If you call other people doubles we may be hesitant to interact or friend you, though.*
+If you share any of our kins/links we ENCOURAGE you to interact! *If you call other people doubles we may be hesitant to interact or friend you, though. (does not apply to fictives)*
 
  
 <details>
@@ -142,9 +141,8 @@ If you share any of our kins/links we ENCOURAGE you to interact! *If you call ot
 
 We're a yumeshipper: we have a lot of weird/uncommon/embarrassing f/os & are hypersharing. (kind of a sad combo) 
 
-Any of our oc x canon ships also double as selfships!
+Any of our oc x canon ships also double as selfships! More yume info on our Straw.page.
 
-Our main yume is Shrek he's our wife & we ship our OC Perceval aka Percy with him!
 
 </div>
 
