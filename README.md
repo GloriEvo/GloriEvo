@@ -1,37 +1,42 @@
 <div align="center">
 
 
-### ☆~- Hello Everypony -~☆
-
-<ins> **Please read this README + our Pronouns.cc before friending us thank you!!** </ins>
+### ★~- Hello Everypony -~★
 
 
+✦ [guns.lol](https://guns.lol/glorievo) ✦ [pronouns.cc](https://pronouns.cc/@glorievo) ✦ [straw.page](https://evo-glori.straw.page) ✦
 
+##
 
+###### Currently obsessed with...
+
+<div align="center">
+
+<img width="27%" height="30%" alt="xavier-xavier-renegade-angel" src="https://github.com/user-attachments/assets/81f00279-906f-4eb2-8806-1a8f56541c0c" />
+
+<img width="50%" height="384" alt="0cd8889ab84fe474aaa593309ca728df" src="https://github.com/user-attachments/assets/f4cfbd09-644e-49a2-87b1-1c775e43c3d3" />
+
+</div>
 
 ##
 
 </div>
 
 
-✦ 
-
-!! If you're going to tell us about someone who has a doc on them, please provide the link for said doc up-front. !!
-
-
-##
 
 
 
 
+<div align="center">
 
-<div align="right">
+### ★
 
-✦
+We usually refer to ourself using plural pronouns like 'we' and 'our'. **WE ARE NOT A SYSTEM!** We are one singular individual up in this noggin, we just enjoy referring to ourself in this way! 
+###### *there probably IS a specific reason as to why we do this, but we have not found out exactly why yet.*
 
-If you couldn't already tell, we usually refer to ourself using plural pronouns like 'we' and 'our'. **WE ARE NOT A SYSTEM!** We are one singular individual up in this noggin, we just enjoy referring to ourself in this way! We do occasionally still use singular pronouns, depending on the context / our mood.
+We do occasionally still use singular pronouns depending on the context, who we're talking to, and our mood.
 
-*this is a recent discovery, apologies if you knew us before we figured this out and are confused by it.*
+###### *this is a recent discovery, apologies if you knew us before we figured this out and are confused by the sudden change.*
 
 </div>
 
@@ -40,7 +45,7 @@ If you couldn't already tell, we usually refer to ourself using plural pronouns 
 
 
 
-✦ 
+### ✦ 
 
 We might suddenly go non/semi-verbal due to low energy, anxiety and various other reasons. Sorry in advance!
 
@@ -48,13 +53,13 @@ We might suddenly go non/semi-verbal due to low energy, anxiety and various othe
 
 <div align="right">
 
-✦
+### ✦
 
 We hate smalltalk and are horrible at it, if you try to start a conversation with "how are you" we will be (unintentionally) dry asf.
 
 </div>
 
-✦ 
+### ✦ 
 
 HUGE cuddle & touch comfort. Cuddles are always welcome and encouraged!! Don't worry too much about covering us while cuddling, as long as a few of our pixels are still visible we're fine with being covered!
 
@@ -64,7 +69,7 @@ HUGE cuddle & touch comfort. Cuddles are always welcome and encouraged!! Don't w
 
 ##
 
- ✦ 
+ ### ★ 
 
 ↓ Clickable! ↓
 
@@ -92,83 +97,19 @@ HUGE cuddle & touch comfort. Cuddles are always welcome and encouraged!! Don't w
 
 ◦ Under 14.
 
-◦ Fakeclaimers.
+◦ [Fakeclaimers.](https://pluralpedia.org/w/Fake-Claiming)
 
 ◦ If you make "Triple T" jokes
 
-◦GenAI users or defenders of GenAI users. (*does not apply to people making an attempt to stop their use of GenAI.*)
+◦ GenAI users or defenders of GenAI users. *does not apply to people making an attempt to stop their use of GenAI.*
 
-◦ "DNI if you like / think you like [insert thing] more than me."
-
-</details>
-
-</div>
-
-##
-
-
-
-✦
-
-Michael Afton & Ennard [Fictionkin](https://otherkin.fandom.com/wiki/Fictionkin) & William Afton [Fictionlink](https://otherkin.wiki/wiki/Otherlink)
-
-If you share any of our kins/links we ENCOURAGE you to interact! *If you call other people doubles we may be hesitant to interact or friend you, though. (does not apply to fictives)*
-
- 
-<details>
- <summary> <ins> ✦ Other kins! ✦ </ins> </summary>
-
-◦ **Bluey**
-
-◦ **Tardigrade**
-
-◦ Hermitcrab
-
-◦ Floatzel / Buizel (Pokemon)
-
-◦ Fungus (we're not sure which specific species yet)
-
-◦ Zombie
-
-◦ Skeleton
-
-◦ Werewolf
+◦ "DNI if you like / think you like [insert thing] more than me." *Unless you've made it clear that you're joking.*
 
 </details>
 
-
-<div align="right">
-
-✦ 
-
-We're a yumeshipper: we have a lot of weird/uncommon/embarrassing f/os & are hypersharing. (kind of a sad combo) 
-
-Any of our oc x canon ships also double as selfships! More yume info on our Straw.page.
-
-
 </div>
 
-##
 
-<div align="center">
-
-✦ 
-
- ↓ Links for stuff here ↓
-
-✦ [guns.lol](https://guns.lol/glorievo) ✦ [pronouns.cc](https://pronouns.cc/@glorievo) ✦ [straw.page](https://evo-glori.straw.page) ✦
-
-
-
-
-
-<img width="40%" height="50%" alt="6f112392740345fe46d5f470cd551029" src="https://github.com/user-attachments/assets/8b6e1624-2787-46fe-9e03-1f0803ccb438" />
-
-
-
-
-
-</div>
 
 
 
