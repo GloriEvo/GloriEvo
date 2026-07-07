@@ -132,6 +132,8 @@ If you share any of our kins/links we ENCOURAGE you to interact! *If you call ot
 
 ◦ Skeleton
 
+◦ Werewolf
+
 </details>
 
 
