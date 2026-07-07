@@ -71,7 +71,7 @@ HUGE cuddle & touch comfort. Cuddles are always welcome and encouraged!! Don't w
 
  ### ★ 
 
-↓ Clickable! ↓
+##### ↓ Clickable! ↓
 
 <details>
  <summary> <ins> ✦ Do Not Interact ✦ </ins> </summary>
