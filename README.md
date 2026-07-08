@@ -1,3 +1,4 @@
+
 <div align="center">
 
 
@@ -38,12 +39,16 @@ We do occasionally still use singular pronouns depending on the context, who we'
 
 ###### *this is a recent discovery, apologies if you knew us before we figured this out and are confused by the sudden change.*
 
-</div>
+
 
 ##
 
+###### We disconnect CONSTANTLY; if we disconnect while AFK it may take us a minute to get back to our PC and reconnect.
 
 
+<img width="516" height="78" alt="Capture" src="https://github.com/user-attachments/assets/a4a87b97-d49b-405c-843e-592136bb8f3a" />
+
+</div>
 
 ### ✦ 
 
