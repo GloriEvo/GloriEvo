@@ -37,11 +37,11 @@
 ### ★
 
 We usually refer to ourself using plural pronouns like 'we' and 'our'. **WE ARE NOT A SYSTEM!** We are one singular individual up in this noggin, we just enjoy referring to ourself in this way! 
-###### *there probably IS a specific reason as to why we do this, but we have not found out exactly why yet.*
+###### *We have not found out specifically why we do this, it just makes us feel happy and that's really all that's important to us.*
 
 We do occasionally still use singular pronouns depending on the context, who we're talking to, and our mood.
 
-###### *this is a recent discovery, apologies if you knew us before we figured this out and are confused by the sudden change.*
+###### *We can switch to using 'I' when speaking to you if you're dyslexic or have any other issues with words, just let us know!*
 
 
 
