@@ -56,7 +56,7 @@ We do occasionally still use singular pronouns depending on the context, who we'
 
 ### ✦ 
 
-We might suddenly go non/semi-verbal due to low energy, anxiety and various other reasons. Sorry in advance!
+We might suddenly go non/semi-verbal due to low energy, anxiety and other various reasons. Sorry in advance!
 
 
 
