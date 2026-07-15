@@ -64,13 +64,13 @@ We might suddenly go non/semi-verbal due to low energy, anxiety and various othe
 
 ### ✦
 
-We hate smalltalk and are horrible at it, if you try to start a conversation with "how are you" we will be (unintentionally) dry asf.
+We hate smalltalk and are horrible at it, if you try to start a conversation with something like "how are you" we will be (unintentionally) dry asf.
 
 </div>
 
 ### ✦ 
 
-HUGE cuddle & touch comfort. Cuddles are always welcome and encouraged!! Don't worry too much about covering us while cuddling, as long as a few of our pixels are still visible we're fine with being covered!
+HUGE cuddle & touch comfort. Cuddles are always welcome and encouraged!! Don't worry too much about covering us while cuddling.
 
 
 
