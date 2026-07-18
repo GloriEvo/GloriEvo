@@ -19,7 +19,7 @@
 
 <img width="30%" height="30%" alt="e93a28ad7d7784a6051a990ddca1dcf0" src="https://github.com/user-attachments/assets/8a33f471-e943-42d4-ad6d-16c4f8c2be10" />
 
-Dealing with a lot mentally + the heatwave isn't helping, we might randomly get overwhelmed and have little to no social energy right now. Patience is appreciated!
+Dealing with a lot mentally + the heatwave isn't helping, we have little to no social energy right now and might randomly get overwhelmed. Patience is appreciated!
 
 
 </div>
