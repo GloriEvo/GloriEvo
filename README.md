@@ -19,6 +19,9 @@
 
 <img width="30%" height="30%" alt="e93a28ad7d7784a6051a990ddca1dcf0" src="https://github.com/user-attachments/assets/8a33f471-e943-42d4-ad6d-16c4f8c2be10" />
 
+Dealing with a lot mentally + the heatwave isn't helping, we might randomly get overwhelmed and have little to no social energy right now. Patience is appreciated!
+
+
 </div>
 
 ##
@@ -34,13 +37,16 @@
 
 ### ★
 
-We usually refer to ourself using plural pronouns like 'we' and 'our'. **WE ARE NOT A SYSTEM!** We are one singular individual up in this noggin, we just enjoy referring to ourself in this way! 
-###### *We have not found out specifically why we do this, it just makes us feel happy and that's really all that's important to us.*
+You'll see us refer to ourself as plural throughought our pages & accounts, meanwhile we may be speaking to you using singular pronouns like 'I' and 'me'. 
 
-We do occasionally still use singular pronouns depending on the context, who we're talking to, and our mood.
+Initially, we speak to people using singular pronouns for ourself to avoid confusion. Constantly bumping into "We? Who's we?" and leading to possible conflict with strangers who are only speaking to us for maybe 5 minutes isn't something we enjoy.
 
-###### *We can switch to using 'I' when speaking to you if you're dyslexic or have any other issues with words, just let us know!*
+If you're alright with us referring to ourself as plural in conversation, please let us know! Speaking like this is extremely comforting for us and we appreciate any chance we can get to be able to have that small amount of joy.
 
+
+###### *We're not entirely sure why we do this, but we believe that we picked it up from seeing systems sometimes refer to themselves collectively using plural pronouns like 'we' and 'us'.*
+
+###### *We can clarify what we mean and briefly switch to singular pronouns at any point if you're ever confused.*
 
 
 ##
