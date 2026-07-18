@@ -1,4 +1,5 @@
 
+
 <div align="center">
 
 
@@ -13,13 +14,10 @@
 
 ##
 
-###### Currently obsessed with...
 
 <div align="center">
 
-<img width="27%" height="30%" alt="xavier-xavier-renegade-angel" src="https://github.com/user-attachments/assets/81f00279-906f-4eb2-8806-1a8f56541c0c" />
-
-<img width="50%" height="384" alt="0cd8889ab84fe474aaa593309ca728df" src="https://github.com/user-attachments/assets/f4cfbd09-644e-49a2-87b1-1c775e43c3d3" />
+<img width="30%" height="30%" alt="e93a28ad7d7784a6051a990ddca1dcf0" src="https://github.com/user-attachments/assets/8a33f471-e943-42d4-ad6d-16c4f8c2be10" />
 
 </div>
 
@@ -52,26 +50,27 @@ We do occasionally still use singular pronouns depending on the context, who we'
 
 <img width="516" height="78" alt="Capture" src="https://github.com/user-attachments/assets/a4a87b97-d49b-405c-843e-592136bb8f3a" />
 
-</div>
 
-### ✦ 
+
+###  
 
 We might suddenly go non/semi-verbal due to low energy, anxiety and other various reasons. Sorry in advance!
 
 
 
-<div align="right">
 
-### ✦
+
+### 
 
 We hate smalltalk and are horrible at it, if you try to start a conversation with something like "how are you" we will be (unintentionally) dry asf.
 
-</div>
 
-### ✦ 
+
+###  
 
 HUGE cuddle & touch comfort. Cuddles are always welcome and encouraged!! Don't worry too much about covering us while cuddling.
 
+</div>
 
 
 <div align="center">
