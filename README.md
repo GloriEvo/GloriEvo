@@ -37,16 +37,13 @@ Dealing with a lot mentally + the heatwave isn't helping, we have little to no s
 
 ### ★
 
-You'll see us refer to ourself as plural throughought our pages & accounts, meanwhile we may be speaking to you using singular pronouns like 'I' and 'me'. 
+We refer to ourself as plural! This is usually present on our various pages and less so when speaking in-game, just to avoid confusion.
 
-Initially, we speak to people using singular pronouns for ourself to avoid confusion. Constantly bumping into "We? Who's we?" and leading to possible conflict with strangers who are only speaking to us for maybe 5 minutes isn't something we enjoy.
+###### *Let us know if you've read this and are fine with us using plural pronouns for ourself!*
 
-If you're alright with us referring to ourself as plural in conversation, please let us know! Speaking like this is extremely comforting for us and we appreciate any chance we can get to be able to have that small amount of joy.
+If you use a screen reader or find it challenging to read what we say for any other reasons, we can refer to ourself using singular pronouns when talking to you.
 
-
-###### *We're not entirely sure why we do this, but we believe that we picked it up from seeing systems sometimes refer to themselves collectively using plural pronouns like 'we' and 'us'.*
-
-###### *We can clarify what we mean and briefly switch to singular pronouns at any point if you're ever confused.*
+###### *We currently do not have a definitive answer for why we refer to ourself in this way, it might be linked to gender but we're not fully sure.*
 
 
 ##
