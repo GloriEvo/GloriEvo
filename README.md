@@ -54,22 +54,13 @@ If you use a screen reader or find it challenging to read what we say for any ot
 <img width="516" height="78" alt="Capture" src="https://github.com/user-attachments/assets/a4a87b97-d49b-405c-843e-592136bb8f3a" />
 
 
+###
 
-###  
+If we're awkwardly covering / being covered by someone, it's likely that one of us has the other hidden.
 
 We might suddenly go non/semi-verbal due to low energy, anxiety and other various reasons. Sorry in advance!
 
-
-
-
-
-### 
-
 We hate smalltalk and are horrible at it, if you try to start a conversation with something like "how are you" we will be (unintentionally) dry asf.
-
-
-
-###  
 
 HUGE cuddle & touch comfort. Cuddles are always welcome and encouraged!! Don't worry too much about covering us while cuddling.
 
