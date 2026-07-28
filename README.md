@@ -19,7 +19,7 @@
 
 <img width="30%" height="30%" alt="e93a28ad7d7784a6051a990ddca1dcf0" src="https://github.com/user-attachments/assets/8a33f471-e943-42d4-ad6d-16c4f8c2be10" />
 
-Dealing with a lot mentally + the heatwave isn't helping, we have little to no social energy right now and might randomly get overwhelmed. Patience is appreciated!
+Mental struggles & the heatwave are making it difficult to communicate right now, any and all patience is appreciated.
 
 
 </div>
@@ -39,11 +39,9 @@ Dealing with a lot mentally + the heatwave isn't helping, we have little to no s
 
 We refer to ourself as plural! This is usually present on our various pages and less so when speaking in-game, just to avoid confusion.
 
-###### *Let us know if you've read this and are fine with us using plural pronouns for ourself!*
+###### *If you're okay with us using plural pronouns for ourself when speaking to you, let us know! Not required to, though.*
 
-If you use a screen reader or find it challenging to read what we say for any other reasons, we can refer to ourself using singular pronouns when talking to you.
-
-###### *We currently do not have a definitive answer for why we refer to ourself in this way, it might be linked to gender but we're not fully sure.*
+There isn't a single definitive answer for why we do this, not yet at least.
 
 
 ##
