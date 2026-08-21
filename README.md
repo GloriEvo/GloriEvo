@@ -11,6 +11,4 @@
 
 ##
 
-
-
-★ Revamping this Github & parts of our Strawpage
+★ Revamping this Github 
