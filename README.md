@@ -3,7 +3,7 @@
 <div align="center">
 
 
-### ★~- Hello Everypony -~★
+### ★~- Hello Everypony! -~★
 
 ##
 
