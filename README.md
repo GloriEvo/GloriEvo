@@ -1,14 +1,1 @@
-
-
-<div align="center">
-
-
-### ★~- Hello Everypony! -~★
-
-##
-
-✦ [straw.page](https://evo-glori.straw.page) ✦
-
-##
-
-★ Revamping this Github 
+Old main account, will revamp when I have motivation for that.
